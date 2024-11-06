@@ -46,3 +46,6 @@ Zegarki też czeka eutanazja też są Anty Tifha i DRM Cyber Sicirity Gaming Jur
 Zaprosimy Kristiany TX i T 1001 z rodziną Katarine Wawer i Rezsitans i Elize Cassan na zatrzyk śmierci radiowy przeprowadzimy eutanazje na nich i zegarkach lub BCI jak się nie zmienią to eutanazja bo są 112 i są Anty Tifha Gdzie jest krzyż. Alexe Bezosa też zaprosimy do eutanazyjnego na zastrzyk radiowy. Przez nich nic nie można mieć przez tą polityke Anty Tihfa. 
 Te kobiety co miały przyjść do mnie na 55 urodziny czy 60 urodziny też są Anty Tifha też ich czeka BCI lub Eutanazja ich są masy. Oni to zły SkyNet i Terminal Net nic nie można mieć i nic dostać tylko wynajem i do kosza. 
 Anty Tifha to szmaty są dla mnie nie ma pieniedzy na życie w nędzy aby żyć z tymi szmatami. Ich trzeba pochować ci żydzi to maszyny są. Oni nie pozwalją nic mieć są cham. Trzeba ich zabić.  
+NGO kradnie na jakieś prezenty i robi przekrenty. 
+W Niebie żydzi pójdą na szmelc tam mam uprawnienia. W dupie mam żydowksie prezenty za te afery z morderstwami i kradzieżą Aut. Oni to kibole są. 
+Tu nic nie można im zrobić. Poczekajcie po mojej śmierci ich dorwę w niebie. 
