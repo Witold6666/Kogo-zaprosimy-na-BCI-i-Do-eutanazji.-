@@ -24,3 +24,4 @@ Część będzie na BCI. Resztę pochowamy na cmenatarzu za to że za żone trze
 Eutanazja czeka też tych ludzi co skasowali kody i trainery do gier i karzą grać tak jak na zawodach na świecie w domu. I Eutanazja czeka wszystkich tych co są za tymi aferami. 
 Eutanazja też za DRM AI że nie da się przejść gry mieć kodów i trainerów czy tak samo w życiu jakieś komputery kwantowe DRM Live. Cała ta komisja antydopingowa ze sławkiem ziemba Eutanazja.  
 Jak nie wyleczmy eutanazja ciało do pieca plazmowego. Łącznie z żoną z konkursu. 
+Łódź też za DRM pójdzie z chrowacją i grecją szwajcarią i z izraelem na eutanazję za to 112 z żonami do konkursu za ten scam Jureczek magdzińsaki też poleci. 
