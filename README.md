@@ -4,3 +4,5 @@ Tych co nie da się uratować czeka eutanazja w kabinie śmierci. Eutanazja czek
 Kristin Bell i jej podatki to zimno finasowe i jej projekty jak te firmy cały amazon i las vegas i zakaz nagród w las vegas. Kristin Bel czeka Etanazja jak jej rodzinę Polityka Belki za zimno i zimne podatki za duże podatki i niskie lokaty czeka ich Eutanazja ja Iron Men God i Post Odyn ich karze zamknąć w kabinie eutanazyjnej.
 Te maszyny wyłączymy.
 Ci źli geniusze zła są z Inwitro. 
+Mam dość chodzenia ze strachu do WC za żarty. Na eutanazję pójdą ci od Kaczor donald i nieudalnych projektów co nie działają są do kosza w sklepie. I ci co nie chcą dać mi kasy. 
+Lub pujdą na BCI. Wszystkich wyłapie ZUS pojedyńczo. 
