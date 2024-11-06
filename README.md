@@ -31,3 +31,6 @@ Tych do systemu i od alexy i kortany też na eutanazje zaprosimy za Geming DRM C
 Tych bezdomnych i wuczykijów zaprosimy do pokoju na eutanazję za słowa o to się gra czas na kastety ze stali i jórka magdzińskiego jego autyzm. Tych szórów czeka eutanazja. 
 Te Byki i te buce czeka eutanazja razem z tymi żonami dla mnie i żonami co mam dostać za gry i wyniki w grach. 
 Ten Cham dostanie z tymi żonami 1 zastrzyk na radio jak nie pomorze BCI uśpimy chama. 
+Albo pójdą się leczyć na BCI z użyciem BCI za gaming i rezytancje i opór albo eutanazja ich czeka. 
+Dziekuje za uwagę. 
+Autyzmu tu nie chcę. 
