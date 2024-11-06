@@ -18,3 +18,4 @@ To co dałem to Kill swiczh i zapper BCI. Jak nie da się zmienić ich mózgu i 
 Dziekuje za oferty ale wole voisa i proponuje leczenie lub Kill Swich bo ja tu rzadzę nie wy. 
 Tych gier nie da się przejść to bot net. 
 Tych z Legi sparty czeka eutanazja za zawody NTA. Do mnie mają wonty że nie mam żony i karzą grać w zawodach NTA gier komputerowych o żonę i płacić podatek 500 000 000 zł za tą żonę i pracować 42 000 lat na zmywaku za żonę. Dlatego BCI lub Eytanazja na radio. 
+Grupa Kali podkręca gry AI i graczą mózgi jak hiper hakerą dlatego czeka ich eutanazja bo nie da się ich pokonać w grach i wygrać żony i jeszcze trzeba pracować na zywaku 42000 lat. Za karę. Dlatego wygrane kobieta i ci co ogranizują zawody NTA czeka Eutanazja kill swich.  
