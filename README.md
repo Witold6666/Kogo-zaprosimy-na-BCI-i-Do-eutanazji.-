@@ -8,3 +8,6 @@ Mam dość chodzenia ze strachu do WC za żarty. Na eutanazję pójdą ci od Kac
 Lub pujdą na BCI. Wszystkich wyłapie ZUS pojedyńczo. 
 Tych od cen za te lale samsung te 250 000 000 miljonów zł za TX lub 500 000 000 miljona za Kortane Kari Białą i Gwen czy Gwen Tennyson zł też czeka ich wszysztkich i sprzedawców Eutanazja i moda na zakup porzyczka 30 lat też czeka ich eutanazja i te lale. Znów żarty kaczor donald w zakupach żony w stylu bezpieki ABW to ABW też eutanazja. 
 Tak samo eutanazja czeka tych mistrzów sportu zostań kierowcą lub sportowcem też czeka eutanazja bo są sztuczni z inwitro. Wezel i widzew też eutanazja. 
+1 Zabieg BCI programowanie DNA i mózgu zniknie ten pies wymarze go BCI co zostawił Putin w Inwitro ten autyzm. To modułem na radio BCI.
+2 Zabieg to eutanazja ostateczny zabieg jak nic nie pomorze utylizacja ciała i duszy radiem wyłączymy funkcje życiowe.
+I zniknie cyniczne satyryczne kaczor donald małe be chodzi o dziecko co mówi przy narodzianach be to dziecko jest chore. 
