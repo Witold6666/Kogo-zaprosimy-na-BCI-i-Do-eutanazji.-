@@ -34,3 +34,4 @@ Ten Cham dostanie z tymi żonami 1 zastrzyk na radio jak nie pomorze BCI uśpimy
 Albo pójdą się leczyć na BCI z użyciem BCI za gaming i rezytancje i opór albo eutanazja ich czeka. 
 Dziekuje za uwagę. 
 Autyzmu tu nie chcę. 
+Lewaki lewarowy dostaną zastrzyk na radio za bycie lewym i doskonałym w umyśle i nie pokonannym. 
