@@ -55,3 +55,4 @@ Izrael z tymi krajami za afery ze mną i innymi dostanie wpierdol po 2 stronie p
 O mój piękny Izraelu też zginie znowu z tą ka I POLICJĄ i wojskiem i Watykanem za NGO i te afery biedy i wojny w niebie nie dam im żyć. 
 Na ziemi jest Ka nic nie można zidą zrobić. Ale w Niebie i piekle i czyścu Ka nie ma. Zidy znów dostną wpierdol wojne im zrobię za kaczor donald i żarty z żonami. 
 Ka to 112 i te numery alarmowe na komendy i ochronę. 
+Te jezusy i NGO i te kradzieży zaczeły się od pisma kaczor Donald. W życiu po za grobowym żydzi to frjaerzy i policja też. Na ziemi są chore Ka 112.  
