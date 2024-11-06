@@ -11,3 +11,4 @@ Tak samo eutanazja czeka tych mistrzów sportu zostań kierowcą lub sportowcem 
 1 Zabieg BCI programowanie DNA i mózgu zniknie ten pies wymarze go BCI co zostawił Putin w Inwitro ten autyzm. To modułem na radio BCI.
 2 Zabieg to eutanazja ostateczny zabieg jak nic nie pomorze utylizacja ciała i duszy radiem wyłączymy funkcje życiowe.
 I zniknie cyniczne satyryczne kaczor donald małe be chodzi o dziecko co mówi przy narodzianach be to dziecko jest chore. 
+Te serca co musiałem kupić i kaząłay za siębie płacić kumulacje lotto też eutanazja. 
