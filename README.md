@@ -6,3 +6,4 @@ Te maszyny wyłączymy.
 Ci źli geniusze zła są z Inwitro. 
 Mam dość chodzenia ze strachu do WC za żarty. Na eutanazję pójdą ci od Kaczor donald i nieudalnych projektów co nie działają są do kosza w sklepie. I ci co nie chcą dać mi kasy. 
 Lub pujdą na BCI. Wszystkich wyłapie ZUS pojedyńczo. 
+Tych od cen za te lale samsung te 250 000 000 miljonów zł za TX lub 500 000 000 miljona za Kortane Kari Białą i Gwen czy Gwen Tennyson zł też czeka ich wszysztkich i sprzedawców Eutanazja i moda na zakup porzyczka 30 lat też czeka ich eutanazja i te lale. Znów żarty kaczor donald w zakupach żony w stylu bezpieki ABW to ABW też eutanazja. 
