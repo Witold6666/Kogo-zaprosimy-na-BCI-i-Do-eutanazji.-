@@ -23,3 +23,4 @@ Pochowamy tych co chcą grać nawet nagrody kobiety pochowamy na cmenatarzu za a
 Część będzie na BCI. Resztę pochowamy na cmenatarzu za to że za żone trzeba płacić 42 000 lat na zmywaku i grać w NTA w gry nie do przejścia z AI lub Hiper hakerami ćpunami ze szwjacari i izraela i gracji i chrowacji. Ogłaszam na świecie pogrzeby i zaproszenia na BCI. 
 Eutanazja czeka też tych ludzi co skasowali kody i trainery do gier i karzą grać tak jak na zawodach na świecie w domu. I Eutanazja czeka wszystkich tych co są za tymi aferami. 
 Eutanazja też za DRM AI że nie da się przejść gry mieć kodów i trainerów czy tak samo w życiu jakieś komputery kwantowe DRM Live. Cała ta komisja antydopingowa ze sławkiem ziemba Eutanazja.  
+Jak nie wyleczmy eutanazja ciało do pieca plazmowego. Łącznie z żoną z konkursu. 
