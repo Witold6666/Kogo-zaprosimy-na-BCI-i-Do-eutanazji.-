@@ -16,3 +16,5 @@ Geming za żone i kase i jej ciuchy też eutanazja.
 Tych co chcą mi dać żonę i karzą o nią grać na arenie i płacić za nią też czeka ich eutanazja razem z tą żoną. Są tylko masyznami do zabicia. 
 To co dałem to Kill swiczh i zapper BCI. Jak nie da się zmienić ich mózgu i DNA to będzie to Kill Swich. 
 Dziekuje za oferty ale wole voisa i proponuje leczenie lub Kill Swich bo ja tu rzadzę nie wy. 
+Tych gier nie da się przejść to bot net. 
+Tych z Legi sparty czeka eutanazja za zawody NTA. Do mnie mają wonty że nie mam żony i karzą grać w zawodach NTA gier komputerowych o żonę i płacić podatek 500 000 000 zł za tą żonę i pracować 42 000 lat na zmywaku za żonę. Dlatego BCI lub Eytanazja na radio. 
