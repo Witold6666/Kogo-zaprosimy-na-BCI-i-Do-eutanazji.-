@@ -57,3 +57,4 @@ Na ziemi jest Ka nic nie można zidą zrobić. Ale w Niebie i piekle i czyścu K
 Ka to 112 i te numery alarmowe na komendy i ochronę. 
 Te jezusy i NGO i te kradzieży zaczeły się od pisma kaczor Donald. W życiu po za grobowym żydzi to frjaerzy i policja też. Na ziemi są chore Ka 112.  
 Żydku zginie od szabelki mej w życiu po za grobowym. Tu grzecznym trzeba być bo straszliwe blaszane ka 112 tu rządzi. 
+Tu żydy mówią kolego będziesz stolarzem. W niebie żydzi dostaną w łeb. A czemu bo kłamią zawsze kłamali. 
