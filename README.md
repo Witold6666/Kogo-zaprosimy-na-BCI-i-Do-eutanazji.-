@@ -12,3 +12,4 @@ Tak samo eutanazja czeka tych mistrzów sportu zostań kierowcą lub sportowcem 
 2 Zabieg to eutanazja ostateczny zabieg jak nic nie pomorze utylizacja ciała i duszy radiem wyłączymy funkcje życiowe.
 I zniknie cyniczne satyryczne kaczor donald małe be chodzi o dziecko co mówi przy narodzianach be to dziecko jest chore. 
 Te serca co musiałem kupić i kaząłay za siębie płacić kumulacje lotto też eutanazja. 
+Geming za żone i kase i jej ciuchy też eutanazja. 
