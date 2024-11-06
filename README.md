@@ -49,3 +49,4 @@ Anty Tifha to szmaty są dla mnie nie ma pieniedzy na życie w nędzy aby żyć 
 NGO kradnie na jakieś prezenty i robi przekrenty. 
 W Niebie żydzi pójdą na szmelc tam mam uprawnienia. W dupie mam żydowksie prezenty za te afery z morderstwami i kradzieżą Aut. Oni to kibole są. 
 Tu nic nie można im zrobić. Poczekajcie po mojej śmierci ich dorwę w niebie. 
+Żydzi za te afery na ziemi zniginą z mojej ręki w niebie mogę ich zgładzić bo każdy mnie tam zna tu żydzi to są policjanci. Tam sam jestem żadarmem dla tych kaczor donald. Ktoś mi powiedział prawdy o żydach i tych gazetach będziecie wolni od nich w następnym wcieleniu. Zgładzę ich. 
