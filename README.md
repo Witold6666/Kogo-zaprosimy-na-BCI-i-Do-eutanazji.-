@@ -26,3 +26,4 @@ Eutanazja też za DRM AI że nie da się przejść gry mieć kodów i trainerów
 Jak nie wyleczmy eutanazja ciało do pieca plazmowego. Łącznie z żoną z konkursu. 
 Łódź też za DRM pójdzie z chrowacją i grecją szwajcarią i z izraelem na eutanazję za to 112 z żonami do konkursu za ten scam Jureczek magdzińsaki też poleci. 
 Kortana Halo 5 i Alexa Bezosa i inne lale też polecą na eutanzję za Gaming DRM cyber sicirity. 
+Jak będą chcieli ze mną grać to moje warunki za grę i żonę. Że się na to nie godzę i że będzie wysypisko śmieci w tych krajach jak będą do prasy przeginac pałe pisać te niusy. Grać nie chcę. Jurku magdziński też dostanie w łeb za cyber siciriti DRM gaming i anty przejęcie żony. Kibole DRM dostną skierowanie na eutanazję za zabieranie żon i te betonowe pały też i budowlańcy też. Za poziom Geming DRM.  
