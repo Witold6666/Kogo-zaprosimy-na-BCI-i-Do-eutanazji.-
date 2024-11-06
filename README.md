@@ -35,3 +35,4 @@ Albo pójdą się leczyć na BCI z użyciem BCI za gaming i rezytancje i opór a
 Dziekuje za uwagę. 
 Autyzmu tu nie chcę. 
 Lewaki lewarowy dostaną zastrzyk na radio za bycie lewym i doskonałym w umyśle i nie pokonannym. 
+Ten Procesor Cyber Siciurity DRM Geming marnuje energię z elektrowni i daje tylko kasę na konta ekologów na ich sztuczne problemy edukacyjne. Ten procesor ekologów jest tylko sztucnzym obciążeniem sieci.  
