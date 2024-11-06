@@ -14,4 +14,5 @@ I zniknie cyniczne satyryczne kaczor donald małe be chodzi o dziecko co mówi p
 Te serca co musiałem kupić i kaząłay za siębie płacić kumulacje lotto też eutanazja. 
 Geming za żone i kase i jej ciuchy też eutanazja. 
 Tych co chcą mi dać żonę i karzą o nią grać na arenie i płacić za nią też czeka ich eutanazja razem z tą żoną. Są tylko masyznami do zabicia. 
-To co dałem to Kill swiczh i zapper BCI. 
+To co dałem to Kill swiczh i zapper BCI. Jak nie da się zmienić ich mózgu i DNA to będzie to Kill Swich. 
+Dziekuje za oferty ale wole voisa i proponuje leczenie lub Kill Swich bo ja tu rzadzę nie wy. 
