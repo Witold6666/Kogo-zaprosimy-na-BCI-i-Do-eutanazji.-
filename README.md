@@ -25,3 +25,4 @@ Eutanazja czeka też tych ludzi co skasowali kody i trainery do gier i karzą gr
 Eutanazja też za DRM AI że nie da się przejść gry mieć kodów i trainerów czy tak samo w życiu jakieś komputery kwantowe DRM Live. Cała ta komisja antydopingowa ze sławkiem ziemba Eutanazja.  
 Jak nie wyleczmy eutanazja ciało do pieca plazmowego. Łącznie z żoną z konkursu. 
 Łódź też za DRM pójdzie z chrowacją i grecją szwajcarią i z izraelem na eutanazję za to 112 z żonami do konkursu za ten scam Jureczek magdzińsaki też poleci. 
+Kortana Halo 5 i Alexa Bezosa i inne lale też polecą na eutanzję za Gaming DRM. 
