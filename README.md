@@ -54,3 +54,4 @@ NGO to złodzieje i rabusie. Przez NGO jest bieda i żydów ich NGO. Tyle wam wy
 Izrael z tymi krajami za afery ze mną i innymi dostanie wpierdol po 2 stronie po śmierci mojej i ich żydzi zginą i piękny Izrael. Za wszystkie Historie za wiele rzeczy. Terminatory też pójdą na szmelc. Na ziemi oni mają policje i ochronę i straż miejską tu nic nie wolno zrobić. A w Niebie żydzi nie mają broni. Moje miłości od żydów dla mnie też zginą. Bo są po ich stronie. A za co a za pismo kaczor donald i te wojny. 
 O mój piękny Izraelu też zginie znowu z tą ka I POLICJĄ i wojskiem i Watykanem za NGO i te afery biedy i wojny w niebie nie dam im żyć. 
 Na ziemi jest Ka nic nie można zidą zrobić. Ale w Niebie i piekle i czyścu Ka nie ma. Zidy znów dostną wpierdol wojne im zrobię za kaczor donald i żarty z żonami. 
+Ka to 112 i te numery alarmowe na komendy i ochronę. 
