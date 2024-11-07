@@ -106,3 +106,4 @@ Nakaz zmuszania kobiet do bycia E mam to też harrp i EEG Maind i Herth Control 
 Zidy są cykliczne z tymi aferami kontroli umysłu na radio harrp Jurek Magdziński podobno to radio im zawsze buduje i mówi na nie pastuch serc umysłów i czakr lub psiotroniczon eeg. 
 Te Lale co miałem mieć od nich są na ich radio harrp EEG Maind i Herth Control na radio czy ich moce pozyskane hakingiem i programowaniem w PC. Ludzie wg radia eeg żydów są na radio na zasadzie taś taś gąski. 
 Te filmy i gry i przekrenty to też radio eeg harrp taś taś gąski. 
+Żydzi to kłamcy dziejów. 
