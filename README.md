@@ -58,3 +58,4 @@ Ka to 112 i te numery alarmowe na komendy i ochronę.
 Te jezusy i NGO i te kradzieży zaczeły się od pisma kaczor Donald. W życiu po za grobowym żydzi to frjaerzy i policja też. Na ziemi są chore Ka 112.  
 Żydku zginie od szabelki mej w życiu po za grobowym. Tu grzecznym trzeba być bo straszliwe blaszane ka 112 tu rządzi. 
 Tu żydy mówią kolego będziesz stolarzem. W niebie żydzi dostaną w łeb. A czemu bo kłamią zawsze kłamali. 
+Lub Reptyjanie sobie zjędzą tych śmieci na ziemi i resztę cywilizacji w kosmosie. I tych od żon co żony dają a żony patelniami biją. Oni są chorzy za mocno wykspaltowane DNA. 
