@@ -69,3 +69,4 @@ Ustawa Anty Tifha i Kibole i sztuka wojny kwiatki pójdą na eutanazje i co się
 Tych gadżetów zakzali. Ja ich za to na eutanazję zaproszę tych strażników miejskich ze średniowiecza bo chcą dawać hulajnogi z Szumilowskim.
 I na Eutanazję odam NGO od transplantologi że zabierją zdrowym zdrowie a nie zappery i drukarki kwantowe. 
 Ci Politycy Maind Control są tylko mocni przed kamerami w TV. 
+Jurek Magdziński to chuligan rap zabiera auta i wygania za nie sortowanie śmieci na ulice. Jego też czeka eutanazja. 
