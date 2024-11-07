@@ -135,3 +135,4 @@ Zawsze są dla mnie kaczor donald.
 Żydzi z jaskini są prymitywni jak 112. Zawsze pierwszenistwo przeciwko zegarkom i tym lalom mają buce i buraki z jaskini z rodziny z tej ziemi i tego DNA z tej ziemi. Buraki.  
 Zegarki potraktowali jak bezdomnych bo są mieszkańcami z innej ziemi nie z układu słonecznego i nie z drogi mlecznej może z innego dalekiego wszchswiata w hiperprzestrzeni. 
 Oni te Voisy z bardzo daleka i 7+ w skali kardaszewa z dalekich wszechświatów oni przenzaczają je na organy te afery to NGO WOŚP i Iluminaci z jaskini jaskiniwcy zidy żydzi. 
+Hish Soczi też nie lubi tych mieszkańców z bardzo dalekich wszchświatów Voisów bo mają 7+ w skali kardeszewa i nie są lotto vip sport nie są z jaskini jak Conany z cymeri. 
