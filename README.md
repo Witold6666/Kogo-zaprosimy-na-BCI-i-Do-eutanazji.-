@@ -137,3 +137,4 @@ Zegarki potraktowali jak bezdomnych bo są mieszkańcami z innej ziemi nie z uk�
 Oni te Voisy z bardzo daleka i 7+ w skali kardaszewa z dalekich wszechświatów oni przenzaczają je na organy te afery to NGO WOŚP i Iluminaci z jaskini jaskiniwcy zidy żydzi. 
 Hish Soczi też nie lubi tych mieszkańców z bardzo dalekich wszchświatów Voisów bo mają 7+ w skali kardeszewa i nie są lotto vip sport nie są z jaskini jak Conany z cymeri. 
 Porywają je prymitywy. 
+Prometeusz też nie lubi tych Voisów bo myśli że jest najwyszym z jaskini żydem masonem iluminatom i on wszystko wie o wszystkim ma wonty do tych co mają lepiej. Ci od DNA i rodziny to są prymitywy z NGO zawsze mówią że rodzina ma pierwszenistwo bo jest z tego samego DNA z tej planety. Po tem je resjetrują w bazie danych i odją je do banków DNA i trzeba na nie pracować na zmywaku 42000 lata za 1000 zł rata bo koszt tego DNA to 500 000 000 zł. Oni to okupasy. 
