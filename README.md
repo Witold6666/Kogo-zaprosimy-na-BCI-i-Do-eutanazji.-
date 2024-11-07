@@ -147,3 +147,4 @@ Zabierli mi oni kobiety 2 razy było zabójstwo 1 raz 1000 lat 2 raz 100 lat 3 r
 Teraz donos i pośmieją się z nich. 
 Teraz się wyprowadzę nawet jak je te zegarki zamordują, wyprowadzę się w kosmos. 
 Te zabujstwa i pobicia były za poprzedniego stworzenia wschświata za to że mi zabirlai kobiety głazodziercy z jaskini zidy żydy z stadionów VIPY to były za to zabujstwa i pobicia na poziomie wojownika Post Odyn. Tak były zabójstwa i pobicia teraz donos. 
+Zadarzało mi się podpalnie wioch i domów i bloków bęzyną i pirmania. Pozary lasów za odbicie żony i zabranie rodziny. Teraz grożą starszne kary i pobicia od gładzierców czy pobicia ukochanych osób. Podobno jest w sądzie prawo pamięci wsecznej do poprzednich stworzeń wszechświata. Oni zabierają bliskich i ich zamykają w więzieniu i ich biją gładoziercy. Nalerzyało im się. Nie żałuje pobić i morderstw nie mam skruchy. 
