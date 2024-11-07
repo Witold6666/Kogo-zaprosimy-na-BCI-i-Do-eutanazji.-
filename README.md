@@ -112,3 +112,4 @@ Ten głazodzierca i 112 to jaskiniowcy ci prymitywni ludzie to ich DNA oni zawsz
 Te prymitywy z jaskini wymyśliły te kary i LGBT cała to jest ta policja oni to trędowaci. 
 Zidy to ten wirus 112 oni to ci jaskiniowcy i ten cały Geming że nic nie można mieć i robić oni to tylko do eutanazji się nadają. 
 Ci jaskiniowcy i żydzi zidy to barany boże. 
+Ugabuga naga bo koła się kręcą to jaskiniowiec daje zakaz na urzywanie rowerów i aut czy motocykli i maszyn i innych urządzeń speclinowych i czarów magi itp nakaz chodzenia pieszo i sportu chodzenia jak legia sparta z jaskini z dzidą. 
