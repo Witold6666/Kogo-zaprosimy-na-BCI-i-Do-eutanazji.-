@@ -71,3 +71,4 @@ I na Eutanazję odam NGO od transplantologi że zabierją zdrowym zdrowie a nie 
 Ci Politycy Maind Control są tylko mocni przed kamerami w TV. 
 Jurek Magdziński to chuligan rap zabiera auta i wygania za nie sortowanie śmieci na ulice. Jego też czeka eutanazja. 
 I ci co popierają choroby i hiv też eutanazja i leki nie zappery i popieraja Juraka Magdzińskiego i Foljarz Juraka Owsiaka i ich prelekcje też eutanazja tej straży miejskiej.  
+Eliza Cassan i Kortana Halo 5 też eutanazja całe ich DNA i pokolenia. Za to że kradną auta i są ekologami i kradną majątki i kasę. Jonson i Danton i ten tajny rząd też eutanazja i te alimenty i ciąże afery na alimenty też eutanazja i te sądy cała TV.   
