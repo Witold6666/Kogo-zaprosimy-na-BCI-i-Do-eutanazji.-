@@ -90,3 +90,4 @@ Izarael zabrał mi moce i oni wszystko konfiskują i to Izrael jest agresywny za
 Oni to deep eko biolodzy i ekolodzy. Oni to te afery. Oni nie pzowalają ci żydzi i zidy nic mieć i wynieść z ziemi pod groźbą śmierci nawet wojnami się to skoniczy ja ich znowu czarami w chuja zrobię. 
 Te leki na choroby psychiczne i kary od 112 jak połamanie czy pobicie za bycie innym to też są leki i kary Przezydent Natan Yahu i Przydent Macroun NGO Sorosa. I te narkotyki i 112. W niebie są bezradni i bez silni bo nic przy sobie nie mają. 
 Chorby też Izrael. 
+Ustawa 447 nie dla żydów żydów i zidów nie obowiązuje tylko nie żydów oni mogą być bogaci a my jesteśmy trakotowani jak bezdomni bez prawa do majątku wszystko do kosza. Ustawa 447 to ta ustawa Anty Thifa i Awantury pod chasłem gdzie jest krzyż. 
