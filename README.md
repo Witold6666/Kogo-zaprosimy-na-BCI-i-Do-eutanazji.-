@@ -81,3 +81,4 @@ Rządzą ziemią na ziemi Chuligany w polityce. To komuniści dostaną w niebie 
 To NGO was okrada. 
 Jak nie będą oni korzystać z drukarek kwantowych i tych nowych super technologi z krzywej kardeszewa odemnie tylko znów Janosiki i afery ja ich zgładzę w niebie czyścu i piekle. Całą TV.  
 Jurka Magdzińskiego i TV też pobije jak psa w niebie i zaświatach. 
+Na ziemi nie bo 112 ka jest. 
