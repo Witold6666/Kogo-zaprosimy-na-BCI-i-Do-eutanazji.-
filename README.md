@@ -153,3 +153,4 @@ U mnie zazwyczaj to było za zegarek i odbicie kobiety i klonowanie jej i pobier
 Gaładziercą się zawsze nalerzy odemnie. 
 Teraz to są pobicia kary śmierci porwania ukowanej do więzienia i miedietiew za przeszłość i przyszłość jak była bużliwa przezłość. 
 Teraz to się wyprowadzę w kosmos. 
+Badania Biblii i chronowizora i czaszek są po to aby odesłać ludzi do domów na ich planety. Loty kosmiczne mogą nam dać wolność od zła i wojen. Ale tego nie wiedziano nawet kiedyś. DLatego kiedyś byli bandyci. Nauka i nowe dane dadją nam większą wiedzę na spojrzenie w przyszłość. 
