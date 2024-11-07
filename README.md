@@ -111,3 +111,4 @@ DNA żydów i zidów to to LGBT i te DNA afery tych prymitywów z jaskini i grot
 Ten głazodzierca i 112 to jaskiniowcy ci prymitywni ludzie to ich DNA oni zawsze są z dzidami. 
 Te prymitywy z jaskini wymyśliły te kary i LGBT cała to jest ta policja oni to trędowaci. 
 Zidy to ten wirus 112 oni to ci jaskiniowcy i ten cały Geming że nic nie można mieć i robić oni to tylko do eutanazji się nadają. 
+Ci jaskiniowcy i żydzi zidy to barany boże. 
