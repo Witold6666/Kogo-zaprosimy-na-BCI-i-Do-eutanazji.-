@@ -151,3 +151,5 @@ Zadarzało mi się podpalnie wioch i domów i bloków bęzyną i pirmania. Pozar
 4 razem siedziałem 3 lata za pobicie. 
 U mnie zazwyczaj to było za zegarek i odbicie kobiety i klonowanie jej i pobieranie krwi te morderstwa i pobicia i zabujstwa jaksiniowców na poczatku ewolucji. 
 Gaładziercą się zawsze nalerzy odemnie. 
+Teraz to są pobicia kary śmierci porwania ukowanej do więzienia i miedietiew za przeszłość i przyszłość jak była bużliwa przezłość. 
+Teraz to się wyprowadzę w kosmos. 
