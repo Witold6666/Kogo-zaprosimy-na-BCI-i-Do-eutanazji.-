@@ -143,3 +143,4 @@ Podobno mieszkańcy z pozimu 7+ i dalekich wszechświtów są nielagalni do posi
 UFO to też jaskiniowcy zidy żydzi i 112 i prymitywy z komunicji z 112 FBI. Prymitywy jak akido i Politycy. 
 Oni traktują ich jak bezdomnych na organy. Bo nie są z Jaskini lotto i sportu bo są star wors lub star wars. 
 Ja zawsze morduję głazodzierców jak zasłużą lub morduje ich przy poczatku cyklu ewolucji bo ich nie lubie nie zabijam tylko 7+ w skali kardeszewa lotto morduje. Teraz donos jak procesor. 
+Zabierli mi oni kobiety 2 razy było zabójstwo 1 raz 1000 lat 2 raz 100 lat 3 raz pobicie 10 lat. Teraz donos bo znam prawo. Oni to te afery. Ja zawsze ich zabjałem jak nic nie było na innych ziemiach teraz się wyprowadzę na inna ziemię. Zegarków nie odzyskam. Oni ci głazodziercy to prymitywy z jaksi zidy żydy. 
