@@ -83,3 +83,4 @@ Jak nie będą oni korzystać z drukarek kwantowych i tych nowych super technolo
 Jurka Magdzińskiego i TV też pobije jak psa w niebie i zaświatach. 
 Na ziemi nie bo 112 ka jest. 
 To Izrael i kibole z Izraela dają piłke nożną i rowery i hulajnogi zwykłe. I Izrael oblewa egzaminy w szkołach i politycy Izraela tacy jak Natan Yahu i Macroun. 
+Żydzi Maind Control i Harrp sterują umysły ludzi na wybory i ich zachowania i żydzi napuszczają wszystkich na siebie nawet przyjaciół czy rodzinę. 
