@@ -79,3 +79,4 @@ Ci politycy są tylko mocni tu na ziemi przy policji i edukacji samoobrony w nie
 Zidy ekolodzy karzą chodzić pieszo i jeździć rowerem. 
 Rządzą ziemią na ziemi Chuligany w polityce. To komuniści dostaną w niebie za ziemie i kosmos za wszystkie afery grupa kali też dostanie w mordę. Za przekrenty. Jak się nie uspokoją z tymi autami i aferami do kosza i innymi aferami jak szczepienia i Maind Control nie dadzą nam żyć. Oni kontrulją wszystkich. Ci rodzice muszą zginąć. 
 To NGO was okrada. 
+Jak nie będą oni korzystać z drukarek kwantowych i tych nowych super technologi z krzywej kardeszewa odemnie tylko znów Janosiki i afery ja ich zgładzę w niebie czyścu i piekle. Całą TV.  
