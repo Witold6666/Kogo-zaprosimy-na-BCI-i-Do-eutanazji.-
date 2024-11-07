@@ -142,3 +142,4 @@ Oni i te krzywe akcje kryminalni i kryminał to 112 i gazeta kaczor donald cyniz
 Podobno mieszkańcy z pozimu 7+ i dalekich wszechświtów są nielagalni do posiadania jako partnera życiowego za wiedzę i informacje jakie mają w głowie oni wiedzą więcej niż nasz militarne i 112. Dla mafi są niebespieczni tych z NGO. 
 UFO to też jaskiniowcy zidy żydzi i 112 i prymitywy z komunicji z 112 FBI. Prymitywy jak akido i Politycy. 
 Oni traktują ich jak bezdomnych na organy. Bo nie są z Jaskini lotto i sportu bo są star wors lub star wars. 
+Ja zawsze morduję głazodzierców jak zasłużą lub morduje ich przy poczatku cyklu ewolucji bo ich nie lubie nie zabijam tylko 7+ w skali kardeszewa lotto morduje. Teraz donos jak procesor. 
