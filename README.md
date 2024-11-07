@@ -75,3 +75,4 @@ Eliza Cassan i Kortana Halo 5 też eutanazja całe ich DNA i pokolenia. Za to ż
 Ci bojownicy za Ukrainę i biedę też zginą w eutanzyjnym będą recepty na eutanazje lub BCI. Ludzie tu trzeba lotów kosmicznych i paliw na elektrony energię elektryczną aby wywiweść ludzi w kosmos na inne planety do życia.  
 Ci stać to ekolodzy i biolodzy są. 
 Ci politycy są tylko mocni tu na ziemi przy policji i edukacji samoobrony w niebie zawsze dostają odemnie nawet jak są akido i karate bencki kataną lub bronią energtyczną czy piorounami. 
+Żydów za ziemię i te afery znów sprzatne w niebie. Jako post człowiek Post Odyn Iron Men God.
