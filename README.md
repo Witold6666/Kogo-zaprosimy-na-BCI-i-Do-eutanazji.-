@@ -63,3 +63,4 @@ Na eutanazje zaproszę tych co lawetują auta i je zabierają i tych co robią w
 Egzaminatorów i szkoły i 112 z tą policją i wojskiem odam na eutanazje. Github zostawie na ziemi ale nie 112. 
 Jezusów i kler też eutanazja. 
 Za te przekrenty Miliony lat żydów i ich władzy. 
+Janosiki są w Policji i 112 i Wojsku i Watykanie. 
