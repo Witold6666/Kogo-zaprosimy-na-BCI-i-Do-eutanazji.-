@@ -82,3 +82,4 @@ To NGO was okrada.
 Jak nie będą oni korzystać z drukarek kwantowych i tych nowych super technologi z krzywej kardeszewa odemnie tylko znów Janosiki i afery ja ich zgładzę w niebie czyścu i piekle. Całą TV.  
 Jurka Magdzińskiego i TV też pobije jak psa w niebie i zaświatach. 
 Na ziemi nie bo 112 ka jest. 
+To Izrael i kibole z Izraela dają piłke nożną i rowery i hulajnogi zwykłe. I Izrael oblewa egzaminy w szkołach i politycy Izraela tacy jak Natan Yahu. 
