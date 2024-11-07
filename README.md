@@ -116,3 +116,4 @@ Ugabuga naga bo koła się kręcą to jaskiniowiec daje zakaz na urzywanie rower
 Moja rada zabijcie żyda na poczatku cyklu ewolucji tego jaskiniowca to będą auta magia czary i telkineza i teleportacja i technologia nie sport czy kibol ze stadionu prymityw lub głazodzierca sportowy autystyczny.
 Dziękuje za uwagę. 
 Te kłutnie i afery i 1 szczekanie zaczoł żydz i żydzi zidy na piękne kobiety i rozumnych mężczyzn. Oni 1 podnieśli ręce na tych pięknych jest tak do dzisiaj. 
+Żydzi z jaskini chcą zabić te piękne kobiety podobno Jonson i Danton jest stać dla tych kobiet oni są z Deus Ex podobno chcą tym pięknym kobietą i zegarką samsung zrobić Holocaust. 
