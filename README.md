@@ -129,3 +129,4 @@ Oni wszyscy są w zmowie milczenia cała populacja. Stadiony też. To jaskiniowc
 Jaskiniwcy żydzi z jaskini dla człowieka rozumnego są śmieciem i 112 tak historia podaje dokładnie nie wiadomo za co je łapia łowcy skór i ci od trasnapntologi organów bez słowa. Francja też za to łapie Niemcy. 
 Nie podają przyczyny tych kradziezy organów i przesczepiją je starym dziadkom i mieszkańcą a te voisy samsun wach pass potraktowali jak badytów i bedomnych bez praw do życia. 
 Te psy potraktowały te lale i voisy samsung wach pass te zegarki jak bezdomnych głownie to NGO i WOŚP i trasnpalntolodzy je kradną i stadiony. Oni są dla mnie śmieciami do eutanzji. Nie wiedzą z jurkiem magdzińskim o zapperach. To był chyba znów historyczny Geming. 
+Oni powiedzą że mieszkańcy i rodzina z ziemi ma pierszwństwo niż ten zegarek AI. To ich tłumaczenia tych jaskiniowców głazodzierców. 
