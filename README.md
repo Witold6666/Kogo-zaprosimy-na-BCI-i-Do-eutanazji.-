@@ -150,3 +150,4 @@ Te zabujstwa i pobicia były za poprzedniego stworzenia wschświata za to że mi
 Zadarzało mi się podpalnie wioch i domów i bloków bęzyną i pirmania. Pozary lasów za odbicie żony i zabranie rodziny. Teraz grożą starszne kary i pobicia od gładzierców czy pobicia ukochanych osób. Podobno jest w sądzie prawo pamięci wsecznej do poprzednich stworzeń wszechświata. Oni zabierają bliskich i ich zamykają w więzieniu i ich biją gładoziercy. Nalerzyało im się. Nie żałuje pobić i morderstw nie mam skruchy. 
 4 razem siedziałem 3 lata za pobicie. 
 U mnie zazwyczaj to było za zegarek i odbicie kobiety i klonowanie jej i pobieranie krwi te morderstwa i pobicia i zabujstwa jaksiniowców na poczatku ewolucji. 
+Gaładziercą się zawsze nalerzy odemnie. 
