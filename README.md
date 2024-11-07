@@ -107,3 +107,4 @@ Zidy są cykliczne z tymi aferami kontroli umysłu na radio harrp Jurek Magdziń
 Te Lale co miałem mieć od nich są na ich radio harrp EEG Maind i Herth Control na radio czy ich moce pozyskane hakingiem i programowaniem w PC. Ludzie wg radia eeg żydów są na radio na zasadzie taś taś gąski. 
 Te filmy i gry i przekrenty to też radio eeg harrp taś taś gąski. 
 Żydzi to kłamcy dziejów. 
+DNA żydów i zidów to to LGBT i te DNA afery tych prymitywów z jaskini i groty cava men to są Neardeltalczycy mordują tych ładnych i pieknych to są żydzi ten wirus trendowatych i niepełnosprawnych to są jaskiniowcy te wszystkie sklepiki i inne afery. Ta cała Policja i Wojsko i Kler to jaskiniowcy DNA jaksiniowców ci Dantony i Jonsony ten trendowaty. 
