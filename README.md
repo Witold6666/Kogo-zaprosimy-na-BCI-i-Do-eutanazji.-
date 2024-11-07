@@ -64,3 +64,4 @@ Egzaminatorów i szkoły i 112 z tą policją i wojskiem odam na eutanazje. Gith
 Jezusów i kler też eutanazja. 
 Za te przekrenty Miliony lat żydów i ich władzy. 
 Janosiki są w Policji i 112 i Wojsku i Watykanie. 
+Za afery z bedmonością też eutanazja. 
