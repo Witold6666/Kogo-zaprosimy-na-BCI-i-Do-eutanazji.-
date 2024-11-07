@@ -61,3 +61,4 @@ Tu żydy mówią kolego będziesz stolarzem. W niebie żydzi dostaną w łeb. A 
 Lub Reptyjanie sobie zjędzą tych śmieci na ziemi i resztę cywilizacji w kosmosie. I tych od żon co żony dają a żony patelniami biją. Oni są chorzy za mocno wykspaltowane DNA. 
 Na eutanazje zaproszę tych co lawetują auta i je zabierają i tych co robią wojny i na nie idą wszystkie kwiatki i 112 Jonson i Danto za to że prawa jazdy mi nie chcą dać i dupe mi zabierają za każadym razem i karzą brać leki na inteliencję. 
 Egzaminatorów i szkoły i 112 z tą policją i wojskiem odam na eutanazje. Github zostawie na ziemi ale nie 112. 
+Jezusów i kler też eutanazja. 
