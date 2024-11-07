@@ -109,3 +109,4 @@ Te filmy i gry i przekrenty to też radio eeg harrp taś taś gąski.
 Żydzi to kłamcy dziejów. 
 DNA żydów i zidów to to LGBT i te DNA afery tych prymitywów z jaskini i groty cava men to są Neardeltalczycy mordują tych ładnych i pieknych to są żydzi ten wirus trendowatych i niepełnosprawnych to są jaskiniowcy te wszystkie sklepiki i inne afery. Ta cała Policja i Wojsko i Kler to jaskiniowcy DNA jaksiniowców ci Dantony i Jonsony ten trendowaty. 
 Ten głazodzierca i 112 to jaskiniowcy ci prymitywni ludzie to ich DNA oni zawsze są z dzidami. 
+Te prymitywy z jaskini wymyśliły te kary i LGBT cała to jest ta policja oni to trędowaci. 
