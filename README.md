@@ -68,3 +68,4 @@ Za afery z bedmonością też eutanazja.
 Ustawa Anty Tifha i Kibole i sztuka wojny kwiatki pójdą na eutanazje i co się mi sprzeciwają też. 
 Tych gadżetów zakzali. Ja ich za to na eutanazję zaproszę tych strażników miejskich ze średniowiecza bo chcą dawać hulajnogi z Szumilowskim.
 I na Eutanazję odam NGO od transplantologi że zabierją zdrowym zdrowie a nie zappery i drukarki kwantowe. 
+Ci Politycy Maind Control są tylko mocni przed kamerami w TV. 
