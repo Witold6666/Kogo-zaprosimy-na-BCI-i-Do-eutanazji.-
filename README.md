@@ -84,3 +84,4 @@ Jurka Magdzińskiego i TV też pobije jak psa w niebie i zaświatach.
 Na ziemi nie bo 112 ka jest. 
 To Izrael i kibole z Izraela dają piłke nożną i rowery i hulajnogi zwykłe. I Izrael oblewa egzaminy w szkołach i politycy Izraela tacy jak Natan Yahu i Macroun. 
 Żydzi Maind Control i Harrp sterują umysły ludzi na wybory i ich zachowania i żydzi napuszczają wszystkich na siebie nawet przyjaciół czy rodzinę. 
+Zidy mieszkają w tych krajch co wymieniłem w redmi i mają bródki jak kozy i pieski. Oni robią te afery jak książka 1000 lat żydów Polskich czy światowych i np koljna era 10 000 lat żydów. Kolejna era 1 000 000 lat żydów. Kolejna Era 1 000 000 000 czy miljardy lat żydów chodzi o ich chamską władzę. 
