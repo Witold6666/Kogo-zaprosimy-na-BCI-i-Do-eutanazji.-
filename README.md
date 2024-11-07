@@ -78,3 +78,4 @@ Ci politycy są tylko mocni tu na ziemi przy policji i edukacji samoobrony w nie
 Żydów za ziemię i te afery znów sprzatne w niebie. Jako post człowiek Post Odyn Iron Men God.
 Zidy ekolodzy karzą chodzić pieszo i jeździć rowerem. 
 Rządzą ziemią na ziemi Chuligany w polityce. To komuniści dostaną w niebie za ziemie i kosmos za wszystkie afery grupa kali też dostanie w mordę. Za przekrenty. Jak się nie uspokoją z tymi autami i aferami do kosza i innymi aferami jak szczepienia i Maind Control nie dadzą nam żyć. Oni kontrulją wszystkich. Ci rodzice muszą zginąć. 
+To NGO was okrada. 
