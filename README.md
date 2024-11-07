@@ -70,3 +70,4 @@ Tych gadżetów zakzali. Ja ich za to na eutanazję zaproszę tych strażników 
 I na Eutanazję odam NGO od transplantologi że zabierją zdrowym zdrowie a nie zappery i drukarki kwantowe. 
 Ci Politycy Maind Control są tylko mocni przed kamerami w TV. 
 Jurek Magdziński to chuligan rap zabiera auta i wygania za nie sortowanie śmieci na ulice. Jego też czeka eutanazja. 
+I ci co popierają choroby i hiv też eutanazja i leki nie zappery i popieraja Juraka Magdzińskiego i Foljarz Juraka Owsiaka i ich prelekcje też eutanazja tej straży miejskiej.  
