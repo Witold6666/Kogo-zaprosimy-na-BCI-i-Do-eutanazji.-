@@ -65,3 +65,4 @@ Jezusów i kler też eutanazja.
 Za te przekrenty Miliony lat żydów i ich władzy. 
 Janosiki są w Policji i 112 i Wojsku i Watykanie. 
 Za afery z bedmonością też eutanazja. 
+Ustawa Anty Tifha i Kibole i sztuka wojny kwiatki pójdą na eutanazje i co się mi sprzeciwają też. 
