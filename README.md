@@ -113,3 +113,5 @@ Te prymitywy z jaskini wymyśliły te kary i LGBT cała to jest ta policja oni t
 Zidy to ten wirus 112 oni to ci jaskiniowcy i ten cały Geming że nic nie można mieć i robić oni to tylko do eutanazji się nadają. 
 Ci jaskiniowcy i żydzi zidy to barany boże. 
 Ugabuga naga bo koła się kręcą to jaskiniowiec daje zakaz na urzywanie rowerów i aut czy motocykli i maszyn i innych urządzeń speclinowych i czarów magi itp nakaz chodzenia pieszo i sportu chodzenia jak legia sparta z jaskini z dzidą. 
+Moja rada zabijcie żyda na poczatku cyklu ewolucji tego jaskiniowca to będą auta magia czary i telkineza i teleportacja i technologia nie sport czy kibol ze stadionu prymityw lub głazodzierca sportowy autystyczny.
+Dziękuje za uwagę. 
