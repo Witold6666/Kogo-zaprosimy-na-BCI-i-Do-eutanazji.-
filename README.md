@@ -174,4 +174,4 @@ Oni wszyscy są w zmowie milczenia i tylko hanldlują bez licencji mają autyzm.
 Wg Histori włamywacze i ci mordercy i post złodzieje to jaskiniowcy byli pochodzili od jaskiniowaca 1 jaskiniowca co zgwłacił i pobił ładną 1 kobietę może taką jak Ewa afera na jabłko oni pochodzą od jaskiniowych żydów. 
 Oni to Rabusie. Te zegarki i te lale były tylko na 30 lat jak dalej na dłużej, porzyczki na dłużej to na zmywak lub 42000 lata pracy na zmywaku za 1000 zł na kwotę 500 000 000 zł.
 Fikcje to jaskiwniowcy zrobili z żydami na ziemi żydzi też są z jaskini. Ci ludzie z ziemi to krzyżówki ludzi z jaskiniowcami i porwanymi klonami z kosmosu. Prawdziwe gwiazdy są w komosie są piekniejsze od ziemskich są na 7+ w skali kardaszewa. Te gwiazdy z ziemi to klony. Orginały są w hiperprzestrzeni na różnych planetach. Cern ich klonuje radiem. 
-Tu są ustaweczki ustawki kwantowe przez polityków post złodzieji jaskiniowców żydów zidów i 112 i tą policje i wojsko i kler. Oni to kujawiaczki. 
+Tu są ustaweczki ustawki kwantowe przez polityków post złodzieji jaskiniowców żydów zidów i 112 i tą policje i wojsko i kler. Oni to kujawiaczki. Oni to kujawski z 1 tłoczenia. 
