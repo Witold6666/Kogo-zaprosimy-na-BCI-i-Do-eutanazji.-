@@ -158,3 +158,4 @@ Mafię tych firm i tych aferzystów z gazet czeka eutanazja z iluminatami za w11
 Ja ślubu za te afery z głazodziercami nie chce i z mieszkańcami też nawet jak ładnie poproszą. 
 Nie Ożenie się z 2 mieszkańcami kobietami nawet jak odadzą kobiety z poprzedniego życia czy odadzą zegarek z aferą na 30 lat. Mówię nie. Zegarek może iść na szmelc na żyletki. 
 Gdzieś mam 500+ i eleona hisha i hamburgery z moich dzieci. Czy czyn pracy etatyzm moich dzieci. Chce być wolny wyprowadzam się kiedyś w kosmos.
+Za tą zmowę milczenia i kolesiostwo zakaz ślubów ze mną i za te afery do gzaty w 11 kryminalni. Nie ożenie się z mieszkańcami. 
