@@ -155,3 +155,4 @@ Teraz to są pobicia kary śmierci porwania ukowanej do więzienia i miedietiew 
 Teraz to się wyprowadzę w kosmos. 
 Badania Biblii i chronowizora i czaszek są po to aby odesłać ludzi do domów na ich planety. Loty kosmiczne mogą nam dać wolność od zła i wojen. Ale tego nie wiedziano nawet kiedyś. DLatego kiedyś byli bandyci. Nauka i nowe dane dadją nam większą wiedzę na spojrzenie w przyszłość. 
 Mafię tych firm i tych aferzystów z gazet czeka eutanazja z iluminatami za w11 kryminalani i trudne sprawy zginą wszyscy łącznie z tymi lalami za zmowę i sex z nimi. 
+Ja ślubu za te afery z głazodziercami nie chce i z mieszkańcami też nawet jak ładnie poproszą. 
