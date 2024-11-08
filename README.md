@@ -163,3 +163,4 @@ Proszę przekazać Jonsonowi że nie ożenie się z mieszkańcami  tej ziemi wyb
 Zbuduję zbroje starka nanotech i się wyprowadzę w kosmos. Mam dość aferzystów z ziemi tych jaj i srania w gacie. 
 Chorzy są na świecie mi chodzi o eutanazje choroby. Chory jest świat. 
 Jak chce tylko aby każdy był zdrowy. 
+Te zegarki robił jaskiniowiec i policja z jaskini FBI. Zegarki trafią na szmelc były maszynami. Podobno rody i rodziny tych jaskiniowców z samsung robiły wojny i mordy rytualne pięknyech kobiet z romzumem wiedźm. Podobno zabijali ładne kobiety wiedźmy. Samsung wg histori był serwisem legi sparty i tych wojsk od wojen i zła i chaosu braku pokoju na świecie. Dla ludzi legia sparta to śmieci. 
