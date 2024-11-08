@@ -162,3 +162,4 @@ Za tą zmowę milczenia i kolesiostwo zakaz ślubów ze mną i za te afery do gz
 Proszę przekazać Jonsonowi że nie ożenie się z mieszkańcami  tej ziemi wybranymi z góry do ślubu na 30 lat do reprodukcji z wojska przez te afery medialne mówię nie zegarek może iść na szmelc. Ja chce zegarek nie żony z ziemi. Do pracy też nie pójdę nawet jak mnie wojsko pobije lub ten zegarek. 
 Zbuduję zbroje starka nanotech i się wyprowadzę w kosmos. Mam dość aferzystów z ziemi tych jaj i srania w gacie. 
 Chorzy są na świecie mi chodzi o eutanazje choroby. Chory jest świat. 
+Jak chce tylko aby każdy był zdrowy. 
