@@ -170,3 +170,4 @@ Smsung i te firmy to zawsze jaja z jaskini. Te lale AI samsung wach pass nie sł
 Sklepy może tylko owtworzyć handlarz wojskowy czy policjant czy lekarz 112. Przez nowe przepisy. Co do tych kobiet z zegarka to wgrali tą bande do systemu. Były od band co polowali na piękne kobiety z telkinezą i wiedźmy od duchowości zabijali je na organy.
 Oni polowali ci od zegarków na te kobiety z telkinezą te piękne wiedzimy polowali. 
 Te firmy to włamywacze. Grupa kali to gwiazdy do systemu i do włamu do schowków elektronicznych robią zdjęcie procesorów schowków i liczą i piszą bzdury w prasie plotkarskiej do Skarbówki są z Ulicy Lewej to jaskiniowcy żydzi. Ci jaskiwniowi żydzi to włamywacze i wszystkie te firmy i korporacje porywacze też tam są. Pochodzą od jaskiniowca i zidya. Kaczor donald to gazeta pisana przez zidów tych włamywaczy i cyników legi sparty oni są z jaskini głaodziercami.  
+Oni wszyscy są w zmowie milczenia i tylko hanldlują bez licencji mają autyzm. 
