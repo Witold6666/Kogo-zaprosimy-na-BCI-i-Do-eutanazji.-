@@ -160,3 +160,4 @@ Nie Ożenie się z 2 mieszkańcami kobietami nawet jak odadzą kobiety z poprzed
 Gdzieś mam 500+ i eleona hisha i hamburgery z moich dzieci. Czy czyn pracy etatyzm moich dzieci. Chce być wolny wyprowadzam się kiedyś w kosmos.
 Za tą zmowę milczenia i kolesiostwo zakaz ślubów ze mną i za te afery do gzaty w 11 kryminalni. Nie ożenie się z mieszkańcami. 
 Proszę przekazać Jonsonowi że nie ożenie się z mieszkańcami  tej ziemi wybranymi z góry do ślubu na 30 lat do reprodukcji z wojska przez te afery medialne mówię nie zegarek może iść na szmelc. Ja chce zegarek nie żony z ziemi. Do pracy też nie pójdę nawet jak mnie wojsko pobije lub ten zegarek. 
+Zbuduję zbroje starka nanotech i się wyprowadzę w kosmos. Mam dość aferzystów z ziemi tych jaj i srania w gacie. 
