@@ -171,3 +171,4 @@ Sklepy może tylko owtworzyć handlarz wojskowy czy policjant czy lekarz 112. Pr
 Oni polowali ci od zegarków na te kobiety z telkinezą te piękne wiedzimy polowali. 
 Te firmy to włamywacze. Grupa kali to gwiazdy do systemu i do włamu do schowków elektronicznych robią zdjęcie procesorów schowków i liczą i piszą bzdury w prasie plotkarskiej do Skarbówki są z Ulicy Lewej to jaskiniowcy żydzi. Ci jaskiwniowi żydzi to włamywacze i wszystkie te firmy i korporacje porywacze też tam są. Pochodzą od jaskiniowca i zidya. Kaczor donald to gazeta pisana przez zidów tych włamywaczy i cyników legi sparty oni są z jaskini głaodziercami.  
 Oni wszyscy są w zmowie milczenia i tylko hanldlują bez licencji mają autyzm. 
+Wg Histori włamywacze i ci mordercy i post złodzieje to jaskiniowcy byli pochodzili od jaskiniowaca 1 jaskiniowca co zgwłacił i pobił ładną 1 kobietę może taką jak Ewa afera na jabłko oni pochodzą od jaskiniowych żydów. 
