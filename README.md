@@ -157,3 +157,4 @@ Badania Biblii i chronowizora i czaszek są po to aby odesłać ludzi do domów 
 Mafię tych firm i tych aferzystów z gazet czeka eutanazja z iluminatami za w11 kryminalani i trudne sprawy zginą wszyscy łącznie z tymi lalami za zmowę i sex z nimi. 
 Ja ślubu za te afery z głazodziercami nie chce i z mieszkańcami też nawet jak ładnie poproszą. 
 Nie Ożenie się z 2 mieszkańcami kobietami nawet jak odadzą kobiety z poprzedniego życia czy odadzą zegarek z aferą na 30 lat. Mówię nie. Zegarek może iść na szmelc na żyletki. 
+Gdzieś mam 500+ i eleona hisha i hamburgery z moich dzieci. Czy czyn pracy etatyzm moich dzieci. Chce być wolny wyprowadzam się kiedyś w kosmos.
