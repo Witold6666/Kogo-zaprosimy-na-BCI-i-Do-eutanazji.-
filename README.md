@@ -185,3 +185,4 @@ Ja na wojnie nie chce ginąć w tym gemingu. Uciekam w zbroi starka w kosmos jak
 Ten Geming i wojny są o szlec dla jaskinioiwców. Jakiniowcy organizuja ten geming wojen i morduja lale z 112 Wosjkiem Policją klerem i 112. To geming organizowany przez autystyków. 
 Te wojny są o śmieci co organizują te grupy zidów z jaskini. 
 Te wojny organizuja lombardy i lombardziści ten Geming. 
+Zarobki 1000 zł to też głazodziercy. 
