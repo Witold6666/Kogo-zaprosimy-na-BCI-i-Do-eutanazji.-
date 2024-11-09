@@ -182,3 +182,4 @@ Te afery z feriami i traktowaniem cywili jak dzieci przez 112 to germanie. Germa
 Tych agentów z jaskini trzeba podać eutanazji trzeba ich zabić BCI. Gdyby ich nie było i ich gemingu był by świenty spokój.
 Jest zakaz Gemingu przez NGO. NGO daje miłość za dużą darowiznę daje żony żone z populacji lub kabitny samotnikom. Przez ustawę Anty Tifha 447. 
 Ja na wojnie nie chce ginąć w tym gemingu. Uciekam w zbroi starka w kosmos jak będzie wojna. 
+Ten Geming i wojny są o szlec dla jaskinioiwców. Jakiniowcy organizuja ten geming wojen i morduja lale z 112 Wosjkiem Policją klerem i 112. To geming organizowany przez autystyków. 
