@@ -181,3 +181,4 @@ Ci jaskiniowcy po skoniczeniu renty i leczenia oferują prace w Policji i 112 za
 Te afery z feriami i traktowaniem cywili jak dzieci przez 112 to germanie. Germanie i żydzi zidy jaskiniowcy i wszyscy jaskiniowcy zidy i te zidowskie narody z jaskini to te afery, Oni to cyganie. Są niepełnosprawni. 
 Tych agentów z jaskini trzeba podać eutanazji trzeba ich zabić BCI. Gdyby ich nie było i ich gemingu był by świenty spokój.
 Jest zakaz Gemingu przez NGO. NGO daje miłość za dużą darowiznę daje żony żone z populacji lub kabitny samotnikom. Przez ustawę Anty Tifha 447. 
+Ja na wojnie nie chce ginąć w tym gemingu. Uciekam w zbroi starka w kosmos jak będzie wojna. 
