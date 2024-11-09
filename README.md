@@ -180,3 +180,4 @@ Mi Po ręcie i leczeniu karzą pracować w Policji i wolointariacie i 112 czy in
 Ci jaskiniowcy po skoniczeniu renty i leczenia oferują prace w Policji i 112 za aktorki lale i zegarki samsung wach pass żony za odmowę pracy w 112 te kobiety wgrywają do systemu i je odają do utylizacji na złom. To jaskiniowcy żydzi mordują te kobiety i je przywłaszczją jak im się odmówi pracy w Policji i 112. To są te śmieci. To jest ta cała ustawa Anty Tifha 447. Potrzebują też na budowę. 
 Te afery z feriami i traktowaniem cywili jak dzieci przez 112 to germanie. Germanie i żydzi zidy jaskiniowcy i wszyscy jaskiniowcy zidy i te zidowskie narody z jaskini to te afery, Oni to cyganie. Są niepełnosprawni. 
 Tych agentów z jaskini trzeba podać eutanazji trzeba ich zabić BCI. Gdyby ich nie było i ich gemingu był by świenty spokój.
+Jest zakaz Gemingu przez NGO. NGO daje miłość za dużą darowiznę daje żony żone z populacji lub kabitny samotnikom. Przez ustawę Anty Tifha 447. 
