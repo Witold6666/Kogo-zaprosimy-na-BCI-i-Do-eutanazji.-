@@ -187,3 +187,4 @@ Te wojny są o śmieci co organizują te grupy zidów z jaskini.
 Te wojny organizuja lombardy i lombardziści ten Geming. 
 Zarobki 1000 zł to też głazodziercy. 
 Gdyby zabić jaskiniowców i tych tajnych z jaskini zidów i germanów wszystkich na ziemi było by super spokojnie. Ale trzeba by było zorganizować projekt Awatr 2045 ożywić zmarłych te kobiety co zgineły i tylko kobiety i zbudować nowe DNA następnych pokoleń kobiet i tylko tyle mężczyzn ożywić część bo są jaskiniowcami to szmaty. Reszta do kosza. 
+Nasze serca i mózgi i chakry mają wady. Musimy opracować procesor Xeon i BCI z AI do leczenia tych chorób. 
