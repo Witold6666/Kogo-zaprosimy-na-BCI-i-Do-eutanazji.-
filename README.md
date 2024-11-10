@@ -223,3 +223,4 @@ Oni są zamiesznai w te morderstwa z urzyciem Harrp. Są też w to zamieszane te
 Oni mi radiem harrp parę osób zabili z rodziny i kiedyś voisy w vois na radio. 
 Blazkowicze też są z tymi barami zamieszani i grupa kali i gierkiem i sławkiem ziembą. 
 Te Pogrzeby to Tuszyn, Grupa Kali od linuksów, i Izrael. 
+I do tych niepełnosprawnych zalicznyć można całą TV wszystkie stacje i firmy. Wszystkie firmy to mafia. 
