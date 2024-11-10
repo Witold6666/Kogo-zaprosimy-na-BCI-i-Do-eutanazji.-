@@ -218,3 +218,4 @@ Zakaz Handlu to pomysły Izraela 447 Anty Tifha i Grupa Kali linux jaskiniowcy a
 Te wszystkie tajne skończą w Rzeżni jako mięso za zakz handlu i nakaz świąt np.: Wigili i za te wojny pójdą na mięso. I się to skoniczy. 
 Izrael bierze porzyczki dla świata i ich nie spłaca i rodzaje te pieniadze w loteriach lotto. Dlatego są długi na świecie i te afery. 
 Te śmieci z jaskini organizują cały czas świenat i wigilje. A innym jak zyją bez świant organizują stypy i pogrzeby oni to śmieci z jaskini od wojen 1 2 i 3 czy innych wojen. Projektu Awatr 2045 też przez nich nie będzie kłucą się o krdyty lotto. Grupa Kali to te śmieci z jaskiniowcami z Izraela. Jaksiniowcy to ci brzydale są. Oni to bandyci. 
+Ci od Linuksów to jaskiniowcy od organizowania pogrzebów walczą o wigilje. Jak watykan. 
