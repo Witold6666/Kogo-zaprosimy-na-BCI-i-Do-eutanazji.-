@@ -219,3 +219,4 @@ Te wszystkie tajne skończą w Rzeżni jako mięso za zakz handlu i nakaz świą
 Izrael bierze porzyczki dla świata i ich nie spłaca i rodzaje te pieniadze w loteriach lotto. Dlatego są długi na świecie i te afery. 
 Te śmieci z jaskini organizują cały czas świenat i wigilje. A innym jak zyją bez świant organizują stypy i pogrzeby oni to śmieci z jaskini od wojen 1 2 i 3 czy innych wojen. Projektu Awatr 2045 też przez nich nie będzie kłucą się o krdyty lotto. Grupa Kali to te śmieci z jaskiniowcami z Izraela. Jaksiniowcy to ci brzydale są. Oni to bandyci. 
 Ci od Linuksów to jaskiniowcy od organizowania pogrzebów walczą o wigilje. Jak watykan. 
+Oni są zamiesznai w te morderstwa z urzyciem Harrp. Są też w to zamieszane te budy jak Kalia resturacja gdzie są uczty na stypy i te stodoły zajazdy i bary przy ulicy i trasie. Podobno Balskowicze też są w to zamieszani. Kłócą się o wigilje. I dlatego są te wojny i niewolnictwo się kłucą ludzi i osób.  
