@@ -210,3 +210,4 @@ Aby było za darmo trzeba mieć inwestora z drukarką kwantową wolną energią 
 Do stref wolnych od pieniedzy i płacy dochodzi chamstwo polityczne ustaw jak ustawa Anty Tifha 447 że nic nie dostaniesz jak nie dasz za to opłat.  
 Judaizm to religia kłamców z placu budowy że będzie dobrze i coraz lepiej ale nie lepiej ze zdrowiem. Żydzi to maszyny terminalnetu. 
 Były jeszcze afery że sprzedawali strt up za kobiety i papierosy czy kobiety w papierosach nie Woisach Woisy jak były były tanie. Lub za kobietę fizycznie czy kobiety. Taka była Policja Grupy Kali Linux tylko liczyło się NGO bezinteresowność i NWO seclorum. Te ich wymiany za patenty nie gotówkę to były wymiany za noworodka.  
+Ci Jaksiniowcy 18 lub 30 czy 20 krotnie zaniżali warotśc na rynku a sami sprzedawali za duże pieniądze na rynku. 
