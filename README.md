@@ -216,3 +216,4 @@ Jaskiniowcy przy resetach populacji dają leki i kroplówki na blokady umysłu i
 To Izrael i 112 Harrp z Grupą Kali Linux robi ze wszystkich koło i generują te blokady na mózg. Przy każdym restecie cywilizacji tak jest. 
 Zakaz Handlu to pomysły Izraela 447 Anty Tifha i Grupa Kali linux jaskiniowcy a za miast tego wymiana towaru patentów i prototypów na opisane prezenty od NGO głównie kobiety i papierosy z kobietami za niskie zyski i małe kwoty są te papierosy. Stadiony też 447 oni też są z jaksini i te ustawy prawa i ustawki prawne 112 zakaz handlu. Oni to świenta. 
 Te wszystkie tajne skończą w Rzeżni jako mięso za zakz handlu i nakaz świąt np.: Wigili i za te wojny pójdą na mięso. I się to skoniczy. 
+Izrael bierze porzyczki dla świata i ich nie spłaca i rodzaje te pieniadze w loteriach lotto. Dlatego są długi na świecie i te afery. 
