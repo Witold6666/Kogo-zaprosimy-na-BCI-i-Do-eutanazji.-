@@ -213,3 +213,4 @@ Były jeszcze afery że sprzedawali strt up za kobiety i papierosy czy kobiety w
 Ci Jaksiniowcy 18 lub 30 czy 20 krotnie zaniżali warotśc na rynku a sami sprzedawali za duże pieniądze na rynku. 
 Jaskiniowcy też czyli żydzi kazali wymieniać patenty i prototypy za ustawę 447 Anty Tifha nie za gotówkę tylko za bzdety czyli dobiazgi przenty np.: perfumy nic konkretnego. Przz tą ustawę i ustawki prawne masę osób traciła majątki na lokatach. Czasem kazali wymienić za żonę i żyć bez pieniedzy czy E papierosa do voisa lub z voisem.      
 Jaskiniowcy przy resetach populacji dają leki i kroplówki na blokady umysłu i do DNA na radio i czakr i Serca czy krwi Izrael to są te blokady 447 Anty Tifha 112 Grupa Kali. Ich czeka eutanazja.  
+To Izrael i 112 Harrp z Grupą Kali Linux robi ze wszystkich koło i generują te blokady na mózg. Przy każdym restecie cywilizacji tak jest. 
