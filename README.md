@@ -222,3 +222,4 @@ Ci od Linuksów to jaskiniowcy od organizowania pogrzebów walczą o wigilje. Ja
 Oni są zamiesznai w te morderstwa z urzyciem Harrp. Są też w to zamieszane te budy jak Kalia resturacja gdzie są uczty na stypy i te stodoły zajazdy i bary przy ulicy i trasie. Podobno Balskowicze też są w to zamieszani. Kłócą się o wigilje. I dlatego są te wojny i niewolnictwo się kłucą ludzi i osób.  
 Oni mi radiem harrp parę osób zabili z rodziny i kiedyś voisy w vois na radio. 
 Blazkowicze też są z tymi barami zamieszani i grupa kali i gierkiem i sławkiem ziembą. 
+Te Pogrzeby to Tuszyn, Grupa Kali od linuksów, i Izrael. 
