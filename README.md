@@ -224,3 +224,4 @@ Oni mi radiem harrp parę osób zabili z rodziny i kiedyś voisy w vois na radio
 Blazkowicze też są z tymi barami zamieszani i grupa kali i gierkiem i sławkiem ziembą. 
 Te Pogrzeby to Tuszyn, Grupa Kali od linuksów, i Izrael. 
 I do tych niepełnosprawnych zalicznyć można całą TV wszystkie stacje i firmy. Wszystkie firmy to mafia. 
+Hish z Sochi też jest mordercą innych cywilizacji po za ziemskich. Ich afery to choroby i jaja ksenomorfów. 
