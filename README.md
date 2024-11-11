@@ -229,3 +229,4 @@ Te zabawy z życiem i śmiercią to żydzi. I narodzinami bez majątku. Samiels 
 Ta policja jaskiniowców zamyka firmy i zamyka do więzień pracowników tych firm. 
 Te porwania przez UFO i reptylje to zachowania jaskiniowców. 
 Oni organizują wesela na siłę i pogrzeby po 30 latach razem i alimenty. Nie mam czasu opisywać tych afer wolę studiować metafizykę i telkinezę. 
+Te budy i bakali i kalia z jedzeniem to grupa kali linux linux i afery z tuszyna i jaskini i izraela te wojny. Oni to te śmieci są i włamy. Nie przejmują się pochówkami. Oni robią te pogrzeby radiem harrp. 
