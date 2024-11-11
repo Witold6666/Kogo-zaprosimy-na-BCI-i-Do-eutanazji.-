@@ -249,4 +249,5 @@ Ta Policja 112 to czerwone komuchy i bądźmy razem starzy opierajmy się o lase
 Te afery zaczeły się od sportu w starożytności i tych afer. 
 Obecne kobiety z populacji to sprzątaczki z Policji, Wojska, 112 i kleru. Dlatego warto żone sobie zaprojektować. Voisem.
 Na tych gnoji z 112 zgłaszajcie sprawe do sondu i urzędu ZUS na prace przy mini koprarkach budowlanych jak przyjdą do was zmuszać was do pracy. Danton i Jonson i kali i te linuksy i szwjcarzy i żydzi z Izraela nie mają szans z ZUS i sądami. Dlatego są roboty. Jak coś oni wam zrobią to te narody pójdą na szmelc do lamusa.  
-Śluby na siłę z populacją też do sondu i do ZUS.
+Śluby na siłę z populacją też do sondu i do ZUS. Zus im wystawi rachunki i faktury za afery ze skarbowym.
+Oni pójdą na szmelc.
