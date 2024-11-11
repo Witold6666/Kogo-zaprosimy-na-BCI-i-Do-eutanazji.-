@@ -228,3 +228,4 @@ Hish z Sochi też jest mordercą innych cywilizacji po za ziemskich. Ich afery t
 Te zabawy z życiem i śmiercią to żydzi. I narodzinami bez majątku. Samiels jest w miljardowym wszechświecie. On robi te przeżuty po kosmosach. 
 Ta policja jaskiniowców zamyka firmy i zamyka do więzień pracowników tych firm. 
 Te porwania przez UFO i reptylje to zachowania jaskiniowców. 
+Oni organizują wesela na siłę i pogrzeby po 30 latach razem i alimenty. Nie mam czasu opisywać tych afer wolę studiować metafizykę i telkinezę. 
