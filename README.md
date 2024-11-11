@@ -241,3 +241,4 @@ Rząd nie innewstuje w radio i system aby budować lepsze budynki architektury w
 1 Ludzi co wnosili piekne budowle zabili jaskiniowcy z Izraela żydzi zidy byli na pocżatku. 
 Na górze mają radio. Tu jest szpachelka. 
 Do tego radia budowlanego jest zamocowany procesor Xeon. I klawiatura z PC laptopem BCI EEG EKG i Vois z klawiaturą dotykową. Tak jest na górze.  
+Antena światłowodowa. 
