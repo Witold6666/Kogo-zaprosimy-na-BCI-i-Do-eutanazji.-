@@ -225,3 +225,4 @@ Blazkowicze też są z tymi barami zamieszani i grupa kali i gierkiem i sławkie
 Te Pogrzeby to Tuszyn, Grupa Kali od linuksów, i Izrael. 
 I do tych niepełnosprawnych zalicznyć można całą TV wszystkie stacje i firmy. Wszystkie firmy to mafia. 
 Hish z Sochi też jest mordercą innych cywilizacji po za ziemskich. Ich afery to choroby i jaja ksenomorfów. 
+Te zabawy z życiem i śmiercią to żydzi. I narodzinami bez majątku. Samiels jest w miljardowym wszechświecie. On robi te przeżuty po kosmosach. 
