@@ -247,3 +247,4 @@ To ta Legia sparta karze sport.
 Ta 112 to idioci i szmaty na ciele za karę ku chwale biedy moralnej i ciansoty legi sparty i komuny czerwonej. 
 Ta Policja 112 to czerwone komuchy i bądźmy razem starzy opierajmy się o laseczkę i gładzmy ściane szpachelką. O tym pisze maszur autor mazura dąbrowskiego że na szpachelke i tygnie. Ci złodzieje z legi sparty z 112 karzą pracować i karzą sportem i post wysiłkiem i charytaywnością odawać nasze PKB w tym zabierają kochanie i miłość czy rodzinę ci ze stadionu te barany. Ta legia sparta to barany boże ci z 112. 
 Te afery zaczeły się od sportu w starożytności i tych afer. 
+Obecne kobiety z populacji to sprzątaczki z Policji, Wojska, 112 i kleru. Dlatego warto żone sobie zaprojektować. 
