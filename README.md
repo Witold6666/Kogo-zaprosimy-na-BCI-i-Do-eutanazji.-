@@ -230,3 +230,4 @@ Ta policja jaskiniowców zamyka firmy i zamyka do więzień pracowników tych fi
 Te porwania przez UFO i reptylje to zachowania jaskiniowców. 
 Oni organizują wesela na siłę i pogrzeby po 30 latach razem i alimenty. Nie mam czasu opisywać tych afer wolę studiować metafizykę i telkinezę. 
 Te budy i bakali i kalia z jedzeniem to grupa kali linux linux i afery z tuszyna i jaskini i izraela te wojny. Oni to te śmieci są i włamy. Nie przejmują się pochówkami. Oni robią te pogrzeby radiem harrp. 
+Ludzie i inne istoty sprzedją bajki że na ziemi czy reptyli orionie czy drako drakoni czy andudynie jest bajkowe życie klepaczy morlanej biedy. Ja nie jestem z tąd jestem z ostaniego wszechświata ten jest 1 wszechświatem. Onstani wszechświat jest miljardowy. Wiedzmini też sprzedali bajki że u nich jest jak w bajce. Albo w Izraelu jest jak w bajce. 
