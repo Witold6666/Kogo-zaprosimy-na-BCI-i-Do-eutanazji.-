@@ -245,4 +245,4 @@ Antena światłowodowa.
 Anteną światłowodową można nadwać sygnał 5G 6G 7G 7+G. Radio to skala kardeszewa u niekturych ludzi co znali się na elktronice i magi była telekineza. 
 To ta Legia sparta karze sport. 
 Ta 112 to idioci i szmaty na ciele za karę ku chwale biedy moralnej i ciansoty legi sparty i komuny czerwonej. 
-Ta Policja 112 to czerwone komuchy i bądźmy razem starzy opierajmy się o laseczkę i gładzmy ściane szpachelką. O tym pisze maszur autor mazura dąbrowskiego że na szpachelke i tygnie. Ci złodzieje z legi sparty z 112 karzą pracować i karzą sportem i post wysiłkiem i charytaywnością odawać nasze PKB w tym zabierają kochanie i miłość czy rodzinę ci ze stadionu te barany.  
+Ta Policja 112 to czerwone komuchy i bądźmy razem starzy opierajmy się o laseczkę i gładzmy ściane szpachelką. O tym pisze maszur autor mazura dąbrowskiego że na szpachelke i tygnie. Ci złodzieje z legi sparty z 112 karzą pracować i karzą sportem i post wysiłkiem i charytaywnością odawać nasze PKB w tym zabierają kochanie i miłość czy rodzinę ci ze stadionu te barany. Ta legia sparta to barany boże ci z 112. 
