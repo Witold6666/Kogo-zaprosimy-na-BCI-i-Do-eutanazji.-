@@ -240,3 +240,4 @@ Zidy tylko śpiewają mój piekny izraelu na 1/2 taktu oj oj oj oj, Pięknie nie
 Rząd nie innewstuje w radio i system aby budować lepsze budynki architektury wszystko jest ze starożytności. 
 1 Ludzi co wnosili piekne budowle zabili jaskiniowcy z Izraela żydzi zidy byli na pocżatku. 
 Na górze mają radio. Tu jest szpachelka. 
+Do tego radia budowlanego jest zamocowany procesor Xeon. I klawiatura z PC laptopem BCI EEG EKG i Vois z klawiaturą dotykową. Tak jest na górze.  
