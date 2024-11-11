@@ -235,3 +235,4 @@ Watachy opowiadają bajki.
 Życie jak w bajce to ta sama żona od lat w głowie lub voisie co z nami podrózuje z planety na planetę po śmierci. To są bajki a nie to co oni mówią jabuszko i eden. Bajki to są rzeczy z 7+ technologicznego w skali kardaszewa. 
 Żona w odzielnej trumnie to balst. 
 Samiels rozdziela ludzi z bajkowego bycia razem jak żona nie jest w zbawce porcu. 
+Zidy tylko śpiewają mój piekny izraelu na 1/2 taktu oj oj oj oj, Pięknie nie jest na świecie przez tych polityków debili. Pięknie jest na górze nie na ziemi za władzy żyda. 
