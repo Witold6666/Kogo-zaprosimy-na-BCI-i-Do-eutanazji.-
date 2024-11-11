@@ -243,3 +243,4 @@ Na górze mają radio. Tu jest szpachelka.
 Do tego radia budowlanego jest zamocowany procesor Xeon. I klawiatura z PC laptopem BCI EEG EKG i Vois z klawiaturą dotykową. Tak jest na górze.  
 Antena światłowodowa. 
 Anteną światłowodową można nadwać sygnał 5G 6G 7G 7+G. Radio to skala kardeszewa u niekturych ludzi co znali się na elktronice i magi była telekineza. 
+To ta Legia sparta karze sport. 
