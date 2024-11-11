@@ -239,3 +239,4 @@ Zidy tylko śpiewają mój piekny izraelu na 1/2 taktu oj oj oj oj, Pięknie nie
 Żony nie można przenieść na górę. 
 Rząd nie innewstuje w radio i system aby budować lepsze budynki architektury wszystko jest ze starożytności. 
 1 Ludzi co wnosili piekne budowle zabili jaskiniowcy z Izraela żydzi zidy byli na pocżatku. 
+Na górze mają radio. Tu jest szpachelka. 
