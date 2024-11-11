@@ -233,3 +233,4 @@ Te budy i bakali i kalia z jedzeniem to grupa kali linux linux i afery z tuszyna
 Ludzie i inne istoty sprzedją bajki że na ziemi czy reptyli orionie czy drako drakoni czy andudynie jest bajkowe życie klepaczy morlanej biedy. Ja nie jestem z tąd jestem z ostaniego wszechświata ten jest 1 wszechświatem. Onstani wszechświat jest miljardowy. Wiedzmini też sprzedali bajki że u nich jest jak w bajce. Albo w Izraelu jest jak w bajce. 
 Watachy opowiadają bajki. 
 Życie jak w bajce to ta sama żona od lat w głowie lub voisie co z nami podrózuje z planety na planetę po śmierci. To są bajki a nie to co oni mówią jabuszko i eden. Bajki to są rzeczy z 7+ technologicznego w skali kardaszewa. 
+Żona w odzielnej trumnie to balst. 
