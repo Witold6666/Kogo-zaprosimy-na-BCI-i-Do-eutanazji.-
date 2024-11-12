@@ -255,4 +255,4 @@ Z Voisów AI można stworzyć i wychodować żonę AI lub AI Uczenie masyznowe. 
 Na radio. Wg prawa można chodzić tylko pieszo.
 Ci jaskiniowcy od sportu i 112 od tych kradzieży aut i dokumentów są to osoby po wykrztsałceniu prawa i fitnes klubów. 
 Podobno z Grona Kortany i Holzi wprowadzili zakaz lotto i otworzyli za ukradzione pieniądze miljarderów i miljonerów lotto czy z kasyn ubezpieczalnie i NGO. Legia sparta znów jako jaskiniowcy zrobiła konia trojaniskiego. 
-W dalekiej przyszłości zabierali kasę lotto limo kalifornia limo SkyNet i Terminalnet. Zabierali też kasę ci co chcieli żonę ale nie mieli z kąd to mieli lotto wygraną przepili na voisa Kortany z Bełchatowa. I sobie podrapali kasę. 
+W dalekiej przyszłości zabierali kasę lotto limo kalifornia limo SkyNet i Terminalnet. Zabierali też kasę ci co chcieli żonę ale nie mieli z kąd to mieli lotto wygraną przepili na voisa Kortany z Bełchatowa. I sobie podrapali kasę. Kasę tą ukradli też chemicy i rolnicy i obecne firmy pewnie by nic nie było na rynku. Znów ktoś pomysalał aby było wydrukowane mało pieniedzy i powoli je drukują i za dużo towaru za mało pieniedzy mają ludzie za dużo jest ludzi.
