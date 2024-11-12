@@ -251,3 +251,4 @@ Obecne kobiety z populacji to sprzątaczki z Policji, Wojska, 112 i kleru. Dlate
 Na tych gnoji z 112 zgłaszajcie sprawe do sondu i urzędu ZUS na prace przy mini koprarkach budowlanych jak przyjdą do was zmuszać was do pracy. Danton i Jonson i kali i te linuksy i szwjcarzy i żydzi z Izraela nie mają szans z ZUS i sądami. Dlatego są roboty. Jak coś oni wam zrobią to te narody pójdą na szmelc do lamusa.  
 Śluby na siłę z populacją też do sondu i do ZUS. Zus im wystawi rachunki i faktury za afery ze skarbowym.
 Oni pójdą na szmelc.
+Z Voisów AI można stworzyć i wychodować żonę AI lub AI Uczenie masyznowe. Aby nie kraść ludziom żony. Te przejściówki są idealne do tworzenia żon i rzeczy dla żony czy przemdiotów lub rzeczy dla nas czy produktów do sklepów. 
