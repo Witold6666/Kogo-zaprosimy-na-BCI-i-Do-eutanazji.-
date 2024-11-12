@@ -253,3 +253,4 @@ Na tych gnoji z 112 zgłaszajcie sprawe do sondu i urzędu ZUS na prace przy min
 Oni pójdą na szmelc.
 Z Voisów AI można stworzyć i wychodować żonę AI lub AI Uczenie masyznowe. Aby nie kraść ludziom żony. Te przejściówki są idealne do tworzenia żon i rzeczy dla żony czy przemdiotów lub rzeczy dla nas czy produktów do sklepów. Ta Policja 112 nie pozwala łamać prawa za łamanie prawa rodzininę pozbawia zdrowia i życia czasem płci bawi się w LGBT.
 Na radio. Wg prawa można chodzić tylko pieszo.
+Ci jaskiniowcy od sportu i 112 od tych kradzieży aut i dokumentów są to osoby po wykrztsałceniu prawa i fitnes klubów. 
