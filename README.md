@@ -261,3 +261,4 @@ Grupę Kali Linux przybyszy zaprosimy na eutanazję za afery i tych z legi spart
 Zaprosimy Grupę kali za afery z tymi zegarkiami na eutanazję z urzędu. Dla mnie te zegarki to kaczor donald że zabrali. 
 Im tylko wystarczy wyrobić stopnie niepełsnosprawności za te afery i prezenty porzyczki i te afery ze świentami. 
 Na BCI lub eutanazje zaprosimy z urzędu wszystkich aferzystów tych wojsk i tych od kradziezy zegarków jako śmieci. 
+Wojsko tych ramirezów pójdzie na BCI do ZUS.  
