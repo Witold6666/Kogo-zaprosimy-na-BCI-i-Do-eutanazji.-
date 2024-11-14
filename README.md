@@ -262,3 +262,4 @@ Zaprosimy Grupę kali za afery z tymi zegarkiami na eutanazję z urzędu. Dla mn
 Im tylko wystarczy wyrobić stopnie niepełsnosprawności za te afery i prezenty porzyczki i te afery ze świentami. 
 Na BCI lub eutanazje zaprosimy z urzędu wszystkich aferzystów tych wojsk i tych od kradziezy zegarków jako śmieci. 
 Wojsko tych ramirezów pójdzie na BCI do ZUS.  
+Te afery to 112 i Izrael. 
