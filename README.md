@@ -263,3 +263,4 @@ Im tylko wystarczy wyrobić stopnie niepełsnosprawności za te afery i prezenty
 Na BCI lub eutanazje zaprosimy z urzędu wszystkich aferzystów tych wojsk i tych od kradziezy zegarków jako śmieci. 
 Wojsko tych ramirezów pójdzie na BCI do ZUS.  
 Te afery to 112 i Izrael. 
+Cały ten geming w histori to 112 i Izrael DNA dzieci kwaity. Cały ten brutalizm w Histori to Dzieci kwiaty ich DNA afery ich Geming w tym geming historyczno wojeny to sudoku i szachy czy inne gry bez podania przyczyn morderstw dla żartów kaczor donald.  
