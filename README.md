@@ -260,3 +260,4 @@ Oni mają Harrp do kradziezy i strat czy zabierania ludzi z rodziny. Tolerują t
 Grupę Kali Linux przybyszy zaprosimy na eutanazję za afery i tych z legi sparty tych matołów. Oni zabrali te zegarki samsung wach pass wędkom radiową. Oni do mnie nie dorośli i mi nie podskoczą. Te zegarki nie są nic warte to szmelc jest. Chif to debil bo jest debil bo chce żyć tu i teraz w kanciapie na ziemi. Ja chce wyprowadzić się w kosmos na GNz11. 
 Zaprosimy Grupę kali za afery z tymi zegarkiami na eutanazję z urzędu. Dla mnie te zegarki to kaczor donald że zabrali. 
 Im tylko wystarczy wyrobić stopnie niepełsnosprawności za te afery i prezenty porzyczki i te afery ze świentami. 
+Na BCI lub eutanazje zaprosimy z urzędu wszystkich aferzystów tych wojsk i tych od kradziezy zegarków jako śmieci. 
