@@ -268,3 +268,4 @@ Jak one zginą te żony za prawdy to ich nie chcę bo są alimentami nie żonami
 Z Tego co wiem mi chcą dać alimenty. Kultura ślubów zaczeła się w izraelu i ten obowiązek ślubu to pantoflarstwo.   
 Jak Historia pokazuje tym ludziom posżło i te morderstwa o jajka i porzyczki czy nie odane pieniądze nawet starkowi poszło o jajka. 
 Te afery z żonami na siłę i alimentami to kazachstan i Izrael. Rostania też w sądach. 
+1 Chcą dawać żony i zabierać prawdziwą miłość 3 zabierać kolejną miłość to są 3 lub 4 strony świata aferzystów. Na 100% ta mafia się zna i koleguje. 
