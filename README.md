@@ -276,3 +276,4 @@ One po tem mówią do sowjego pana nie mój drogi kupiłeś mi Konkret nie Lavin
 Marka konkret płaszczy szyje płaszcze drukarką kwantową konkretnie dużo wysokiej jakości mechatronicznie za duże pieniądze ale drukarka je daje za darmo bo kosztuje ona 100 zł. 
 Portale randkowe też na szmelc albo zajęci albo bardzo kosztowni nie chcą rozwiązań elektronicznych do produkcji rzeczy i ubrań przejściwóek tylko ze sklepu nie z drukarni jak chromcast google a z kopalni czy z pola. Ci ludzie też są chamscy są wirusem. Nie wiem co ze sklepami internetowymi chyba też na szmelc. Ci aferzysści na szmelc. 
 Ja tej Policji co zakazuje ożywiania zmarłych i kasuje zdjęcia z internetu wyślę ich na renty i BCI z urzędu ZUS całe 112 i Policje z Milicją i Klerem. Policja to ochrona a nie politycy z 112. 
+I za zakazy robienia voisów i zkazy i zabijanie AI będą na renatach BCI ci Policjanci z ABW. 
