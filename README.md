@@ -267,3 +267,4 @@ Cały ten geming w histori to 112 i Izrael DNA dzieci kwaity. Cały ten brutaliz
 Jak one zginą te żony za prawdy to ich nie chcę bo są alimentami nie żonami tylko alimenciarami. Nie zalezy mi na aliemntach na lewo i życiu osobno w innym mieście ona z kimś innym bo harrp ją otruł radiem falom radiową na BCI. Gdzieś mam te przekrenty i alimenty grupy kali linux i przybyszów afery na alimenty na lewo. 
 Z Tego co wiem mi chcą dać alimenty. Kultura ślubów zaczeła się w izraelu i ten obowiązek ślubu to pantoflarstwo.   
 Jak Historia pokazuje tym ludziom posżło i te morderstwa o jajka i porzyczki czy nie odane pieniądze nawet starkowi poszło o jajka. 
+Te afery z żonami na siłę i alimentami to kazachstan i Izrael. Rostania też w sądach. 
