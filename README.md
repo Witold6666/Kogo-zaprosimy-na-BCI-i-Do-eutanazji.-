@@ -264,3 +264,4 @@ Na BCI lub eutanazje zaprosimy z urzędu wszystkich aferzystów tych wojsk i tyc
 Wojsko tych ramirezów pójdzie na BCI do ZUS.  
 Te afery to 112 i Izrael. 
 Cały ten geming w histori to 112 i Izrael DNA dzieci kwaity. Cały ten brutalizm w Histori to Dzieci kwiaty ich DNA afery ich Geming w tym geming historyczno wojeny to sudoku i szachy czy inne gry bez podania przyczyn morderstw dla żartów kaczor donald.  
+Jak one zginą te żony za prawdy to ich nie chcę bo są alimentami nie żonami tylko alimenciarami. Nie zalezy mi na aliemntach na lewo i życiu osobno w innym mieście ona z kimś innym bo harrp ją otruł radiem falom radiową na BCI. Gdzieś mam te przekrenty i alimenty grupy kali linux i przybyszów afery na alimenty na lewo. 
