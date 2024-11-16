@@ -269,4 +269,5 @@ Z Tego co wiem mi chcą dać alimenty. Kultura ślubów zaczeła się w izraelu 
 Jak Historia pokazuje tym ludziom posżło i te morderstwa o jajka i porzyczki czy nie odane pieniądze nawet starkowi poszło o jajka. 
 Te afery z żonami na siłę i alimentami to kazachstan i Izrael. Rostania też w sądach. 
 1 Chcą dawać żony i zabierać prawdziwą miłość 3 zabierać kolejną miłość to są 3 lub 4 strony świata aferzystów. Na 100% ta mafia się zna i koleguje. 
-Damy żonę, zabierzemy żonę, Pobijemy żonę itp.: to afery izraela i kazachstanu. 
+Damy żonę, zabierzemy żonę, Pobijemy żonę itp.: to afery izraela i kazachstanu. My rozkazujemy bo my jesteśmy z kazachstanu czy izraela. Tyle. 
+To dajmy na to taką historię. Mieszka sobie Polka w Polsce marzy o ameryakninie i pisze z nim czasem a przychodzi do niej kazachstańczyk i daje kwiaty i jej rozkazuje a ona mówi kupi mi pan Lavinchi płaszcz będę pana. A w sklepie tylko dyski usb z rzeczami firmy konkret i te same produkty co lavinchi po 100 000 zł drukowane energią elektryczną z druakrki kwantowej. A pani mówi pódję do pana co kupi mi płaszcz Lavinchi dziekuje panu bo jest metka Lavinchi. Tyle. Lepiej sobie żone wyuczyć i ją wystrugać niż brać z populacji od hakerów co ją hakowali i przekonali na swoją stronę maind control.  
