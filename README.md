@@ -289,3 +289,4 @@ Obiecywali statek kosmiczny i zbroje starka mark 85 i pieniądze a przez tą pol
 Możecie się spytać filmowego Thora i Lokiego lub Odyna kim jest Post Odyn. Oni też ze mnie się śmieją. 
 Asgard, Ziemia i Samiels to moja daleka znienawidzona rodzina. Na Post Odynie lepiej mi się żyło niż tu. Zawsze wracałem na Postodyn planetę z gratami ze sklepu po 4 zł. 
 Tu mnie traktują jak śmiecia na ziemi jak kogoś bez piniedzy. Co do marvela tej tajnej mafi są to buraki ćwikłowe. 
+Nie chce żony z tej ziemi. One zostawiają jak te zegarki od samsunga wach pass. Są jak ci ze stadionów. Ja chce po śmierci do siebie wrócić lub lotami w kosmos w przyszłości. Mieszkać w autobusie nie chce nawet w takim domu. Chce do siebie nie do kamer. Gwiazd nie lubię im trzeba lekarza za te afery inne i zakaz powrotu do siebie na inne planety. 
