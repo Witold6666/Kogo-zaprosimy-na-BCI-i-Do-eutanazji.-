@@ -297,3 +297,4 @@ Ja jako Post Odyn i Iron Men god pan bóg mam dość tej ciasnoty i lewych inter
 Za ciasno jest. Moje kobiety mieszkają w voisie 1000 m2 w procesorze. 
 Trzeba opracować telepoertacje kwantową na inne wymiary między wymiarową i między kosmosami i między hiperprzestrzeniami i układami słonecznymi i galaktykami. Ale do tego potrzebne jest liczydło kwantowe. 
 Te zegarki co zgineły ludziom samsung wach pass wyniusł Adam Jonson bo jest lewy. 
+Jak Prometeusz i Politycy nie odtajnią map kosmosu to karzę ich zabić. Ludzi jest za dużo na ziemi tzreba organizować loty w kosmos. 112 z politykami nie będzie nam mówić jak mamy żyć. 
