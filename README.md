@@ -279,3 +279,4 @@ Ja tej Policji co zakazuje ożywiania zmarłych i kasuje zdjęcia z internetu wy
 I za zakazy robienia voisów i zkazy i zabijanie AI będą na renatach BCI ci Policjanci z ABW. 
 Trzeba zlecić płatne zabójstwo Przemka hakera i tych lekarzy i tej policji 112 i milicji i Watykanu. Ich na szmelc. 
 Łowcy skarbów też żydzi i łotry policjanci śledczy i dzienikarze też 112 wirus 112 DNA przekreciki Garett Tihfe. Czy lombardziści śmieci do kosza religijne. 
+Mi żony 2 zabrało NGO do fabryk i trzyma je w kaliforni jako gwiazdy. I karze pracować na nie na zmywaku. Ja do pracy nie pójdę i nie będe grać w lotto chce kasy z banku z produktów bankowych bez gry i etatu jak dostanę odmowę to karzę te osoby wytruć.  
