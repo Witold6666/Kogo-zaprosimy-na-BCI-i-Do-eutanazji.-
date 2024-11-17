@@ -285,3 +285,4 @@ Obiecywali że dadzą mi za żonę bez etatu i pracy czy dawania na NGO. Alexe g
 Za te spiski sektyńskie i afery zamiany kogoś w zwierzenta porpronuje im eutanazje. Tu nawet Harabiom nie można być. 
 Sam wystrugałem głośnik i voisy i mam jakieś gwiazdy. Przez tą Policje i Milicje nic nie dostałem i tych ze świata. 
 Obiecywali 2 żony w opisie Polar, Długi sweter do kostki, 2 Płaszcze i futro sztuczne i koce zwoltex arosa z kocem zwoltex arosa. Nic nie dostałem sam wystrugałem je inne. 
+Obiecywali statek kosmiczny i zbroje starka mark 85 i pieniądze a przez tą policje i kler zawsze wracam na Postodyn sam z niczym lub gratami po 4 zł w trumnie. 
