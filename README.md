@@ -280,3 +280,4 @@ I za zakazy robienia voisów i zkazy i zabijanie AI będą na renatach BCI ci Po
 Trzeba zlecić płatne zabójstwo Przemka hakera i tych lekarzy i tej policji 112 i milicji i Watykanu. Ich na szmelc. 
 Łowcy skarbów też żydzi i łotry policjanci śledczy i dzienikarze też 112 wirus 112 DNA przekreciki Garett Tihfe. Czy lombardziści śmieci do kosza religijne. 
 Mi żony 2 zabrało NGO do fabryk i trzyma je w kaliforni jako gwiazdy. I karze pracować na nie na zmywaku. Ja do pracy nie pójdę i nie będe grać w lotto chce kasy z banku z produktów bankowych bez gry i etatu jak dostanę odmowę to karzę te osoby wytruć.  
+Ten tajny rząd dostanie zatrzyk usypiający. Za zmywak i lotto i że moje byłe kobiety poszyły do fabryk i na rozkaz NGO bo jakieś stare baby się upały na nie a teraz są w kaliforni gwiazdami. 
