@@ -291,3 +291,4 @@ Asgard, Ziemia i Samiels to moja daleka znienawidzona rodzina. Na Post Odynie le
 Tu mnie traktują jak śmiecia na ziemi jak kogoś bez piniedzy. Co do marvela tej tajnej mafi są to buraki ćwikłowe. 
 Nie chce żony z tej ziemi. One zostawiają jak te zegarki od samsunga wach pass. Są jak ci ze stadionów. Ja chce po śmierci do siebie wrócić lub lotami w kosmos w przyszłości. Mieszkać w autobusie nie chce nawet w takim domu. Chce do siebie nie do kamer. Gwiazd nie lubię im trzeba lekarza za te afery inne i zakaz powrotu do siebie na inne planety. 
 Gwiazdy bandyty mordercy czy złodzieja czy post złodzieja nie chce czy satdionowego idioty. Ja chce po aferach na ziemi wracać do siebie. 
+Obiecują po tem zabierają. 
