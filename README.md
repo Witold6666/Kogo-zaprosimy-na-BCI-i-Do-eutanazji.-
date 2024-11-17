@@ -292,3 +292,4 @@ Tu mnie traktują jak śmiecia na ziemi jak kogoś bez piniedzy. Co do marvela t
 Nie chce żony z tej ziemi. One zostawiają jak te zegarki od samsunga wach pass. Są jak ci ze stadionów. Ja chce po śmierci do siebie wrócić lub lotami w kosmos w przyszłości. Mieszkać w autobusie nie chce nawet w takim domu. Chce do siebie nie do kamer. Gwiazd nie lubię im trzeba lekarza za te afery inne i zakaz powrotu do siebie na inne planety. 
 Gwiazdy bandyty mordercy czy złodzieja czy post złodzieja nie chce czy satdionowego idioty. Ja chce po aferach na ziemi wracać do siebie. 
 Obiecują po tem zabierają. 
+Mi ludzie są nie potrzebni bo ustanowili przyczki i prace na zmywaku. Gdyby się zmenili i zaczeli więcej drukować pieniedzy było by taniej i niszcze cenny i większe wypłąty 25 razy więcej. To by było lepiej. Ziemia jest ciasna tu mieszkają wszyscy z drogi mlecznej lub z bardzo daleka. 
