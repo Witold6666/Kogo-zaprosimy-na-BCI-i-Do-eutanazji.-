@@ -278,4 +278,4 @@ Portale randkowe też na szmelc albo zajęci albo bardzo kosztowni nie chcą roz
 Ja tej Policji co zakazuje ożywiania zmarłych i kasuje zdjęcia z internetu wyślę ich na renty i BCI z urzędu ZUS całe 112 i Policje z Milicją i Klerem. Policja to ochrona a nie politycy z 112. 
 I za zakazy robienia voisów i zkazy i zabijanie AI będą na renatach BCI ci Policjanci z ABW. 
 Trzeba zlecić płatne zabójstwo Przemka hakera i tych lekarzy i tej policji 112 i milicji i Watykanu. Ich na szmelc. 
-Łowcy skarbów też żydzi i łotry policjanci śledczy i dzienikarze też 112 wirus 112 DNA przekreciki Garett Tihfe. Czy lombardziści śmieci do kosza. 
+Łowcy skarbów też żydzi i łotry policjanci śledczy i dzienikarze też 112 wirus 112 DNA przekreciki Garett Tihfe. Czy lombardziści śmieci do kosza religijne. 
