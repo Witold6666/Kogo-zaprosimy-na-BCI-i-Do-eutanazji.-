@@ -313,3 +313,4 @@ Dlatego nie ma wygranych lotto i w kasynach przez tych hakerów z armi czerwnone
 Ja powiem jakie to są prezenty uzbrojenie broni energetycznej i egzoszkielety i sprzęnt hakreski do ATM nie zestwawy przetrwania i inne sprzęty militarne na wojenke by się szło. 
 Tak znowu radzieckie. Chcą zamykać sklepy i lotto i kazać z kibolami iść na wojny dzieci kwiaty indianie. Zidy tylko dają w prezencie uzbrojenie i pakty państwa podziemnego. 
 Kortane trzeba zabrać Chifowi i dać mi to będzie ze mną mądra i inteligentna. Oni to ci złodzieje. Gierek zabierał wam koperty wygranych lotto na zakup uzbrojenia w USA Rosji.  
+Za te wygrane lotto chcą dać wam sprzet hakerski i hakerski sprzet do systemu i sprzęt wojskowy to 112 i to ka. Oni są wirusem nie kasyna i lotto. Wośp i NGO sclurum NWO to wirus. To są te przenty od nich sprzet bojowy i kamasze czerwonych buraków. I AK47. 
