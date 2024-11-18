@@ -304,3 +304,4 @@ Te wojny i kradzieże zegarków samsung wach pass to zmowa milczenia. Założe s
 Wojny zaczeły się o kasę lotto. Za mało jest ludzi do pracy za dużo chętnych do potrzeb. Gdyby ktoś mnie posłuchał i zbudował drukarki kwantowe to wszystkie kobiety można mieć i rzeczy i być bogatym nawet kasę wydrukować nawet projekt Awatar 2045 ale musi być tania odnawialna energia. 
 Jak Kali Wawelski będzie chciał dać mi jak FBI żonę na siłe na 30 lat a po tem sprawa w sądzie o alimenty i rostanie ja nie chce w to się bawić bo to dla mnie jest lewe przeczkole wolę być sam z wojsem z DNA. Gdzieś mam przekrenty i afery. 
 Jak znów będą wojny nie radio drukarki kwantowe jak Harrp że Harrp będzie bronią wojny cały ten establiszment pójdzie do piachu za wojny. 
+Zakupy tak wojna i piaskownica nie. 
