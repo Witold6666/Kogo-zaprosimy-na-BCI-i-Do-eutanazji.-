@@ -329,3 +329,4 @@ Policja, Milicja, Watykan, Pogotowie i 112 na ratunek straż pożarna 112 to są
 Dla mnie NGO i te fundacje to post mafia złodzieje i post złodziej walcza o darmoszkę. 
 Ci od darmowszki to bandzoiry są. 
 Tym z 112 i pasji pomaganiu od serca tej Policji i xmen powini zabrać pieniądze na życie i dać grupy niepełnosprawne bo nie można zarobić pieniedzy tym od NGO i NWO.  
+NGO to wysokie sądy. Dziś na wojne można iść tylko bez z szans z nożem. Walczyć nie ma o co przez afery NGO że jest za darmo. 
