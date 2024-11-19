@@ -323,3 +323,4 @@ Kasa z lotto była do zusu i do kont oszcżednościowych i inwstycji w bankach d
 Jurek MAgdziński ten bezdomny i bezdomni ukraldi lotto i założyliw firmy i NGO całe to NWO. To Bezdomni kradną pieniądze a teraz my nie mamy kasy. 
 Te majątki dali im za darmo jako kolesiom. Nigdzie nic się nie opłaca robić i zarabiać. To NGO i wośp kradnie kasę i nic nie można zarobić na życie przez tych bandziorów sportu. 
 NGO karze wszystko odać za darmo jak prezenty od mikołaja. Nie pozwala ta policja trzepać kasy. Te osły to komuniści i anarchia wojskowa.  
+NGO i Watykan i ta kasa ci ludzie ją dostają za karę nie za to że chcą zarobić i być święcie. 
