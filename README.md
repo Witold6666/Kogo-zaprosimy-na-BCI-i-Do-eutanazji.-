@@ -318,3 +318,4 @@ Całe to halt daje w prezencie wodę i racje żywnościowe dla armi zupy w prosz
 Tak jest spokojnie. To radio harrp steruje DNA i EEG i EKG to 112 z izraela wami steruje i przegrane w lotto. To ta POLIS JONSON I DANTON I TE SKLEPY.   
 Wyłączą radio harrp broń falową i zabiorą wojsku uzbrojenie na szmelc pójdzie za te afery do gazty i więzienia itp te sprawy i te sądy też pójdą na szmelc. Tyle i przekarzcie. 
 Jeff Bezos też jest FBI dla wygranych lotto i sprzedaje łachy nam miljonerom jak wygramy. Jurek Magdziński karze nas okradać z lotto i wygranych z kasyn.  
+1 Przywłaszczenie kasy z wygranych lotto było przez NGO WOŚP. 
