@@ -316,3 +316,4 @@ Kortane trzeba zabrać Chifowi i dać mi to będzie ze mną mądra i inteligentn
 Za te wygrane lotto chcą dać wam sprzet hakerski i hakerski sprzet do systemu i sprzęt wojskowy to 112 i to ka. Oni są wirusem nie kasyna i lotto. Wośp i NGO sclurum NWO to wirus. To są te przenty od nich sprzet bojowy i kamasze czerwonych buraków. I AK47. 
 Całe to halt daje w prezencie wodę i racje żywnościowe dla armi zupy w proszku chemiczne oni to ci na lewo. Cynizm i chamstwo legi sparty. Obrona ojczyzny bo po co pogadać. Oni to warciaci dla kopert lotto kupują sprzent wojskowy. 
 Tak jest spokojnie. To radio harrp steruje DNA i EEG i EKG to 112 z izraela wami steruje i przegrane w lotto. To ta POLIS JONSON I DANTON I TE SKLEPY.   
+Wyłączą radio harrp broń falową i zabiorą wojsku uzbrojenie na szmelc pójdzie za te afery do gazty i więzienia itp te sprawy i te sądy też pójdą na szmelc. Tyle i przekarzcie. 
