@@ -321,3 +321,4 @@ Jeff Bezos też jest FBI dla wygranych lotto i sprzedaje łachy nam miljonerom j
 1 Przywłaszczenie kasy z wygranych lotto było przez NGO WOŚP. 
 Kasa z lotto była do zusu i do kont oszcżednościowych i inwstycji w bankach dla ludzi. 
 Jurek MAgdziński ten bezdomny i bezdomni ukraldi lotto i założyliw firmy i NGO całe to NWO. To Bezdomni kradną pieniądze a teraz my nie mamy kasy. 
+Te majątki dali im za darmo jako kolesiom. Nigdzie nic się nie opłaca robić i zarabiać. To NGO i wośp kradnie kasę i nic nie można zarobić na życie przez tych bandziorów sportu. 
