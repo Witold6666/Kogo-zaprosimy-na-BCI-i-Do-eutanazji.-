@@ -320,3 +320,4 @@ Wyłączą radio harrp broń falową i zabiorą wojsku uzbrojenie na szmelc pój
 Jeff Bezos też jest FBI dla wygranych lotto i sprzedaje łachy nam miljonerom jak wygramy. Jurek Magdziński karze nas okradać z lotto i wygranych z kasyn.  
 1 Przywłaszczenie kasy z wygranych lotto było przez NGO WOŚP. 
 Kasa z lotto była do zusu i do kont oszcżednościowych i inwstycji w bankach dla ludzi. 
+Jurek MAgdziński ten bezdomny i bezdomni ukraldi lotto i założyliw firmy i NGO całe to NWO. To Bezdomni kradną pieniądze a teraz my nie mamy kasy. 
