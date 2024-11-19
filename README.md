@@ -319,3 +319,4 @@ Tak jest spokojnie. To radio harrp steruje DNA i EEG i EKG to 112 z izraela wami
 Wyłączą radio harrp broń falową i zabiorą wojsku uzbrojenie na szmelc pójdzie za te afery do gazty i więzienia itp te sprawy i te sądy też pójdą na szmelc. Tyle i przekarzcie. 
 Jeff Bezos też jest FBI dla wygranych lotto i sprzedaje łachy nam miljonerom jak wygramy. Jurek Magdziński karze nas okradać z lotto i wygranych z kasyn.  
 1 Przywłaszczenie kasy z wygranych lotto było przez NGO WOŚP. 
+Kasa z lotto była do zusu i do kont oszcżednościowych i inwstycji w bankach dla ludzi. 
