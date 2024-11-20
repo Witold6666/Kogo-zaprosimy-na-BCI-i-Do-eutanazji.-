@@ -339,3 +339,4 @@ Te buce gwiazdy zabierają zegarki Kortany na mięso do masarni. Dlatego dla mni
 Ci ze SkyNet i TerminalNet byli początkowo z miesą są chorzy bo chcą wojen. Dla mnie to twór z Izraela. Oni wszyscy są chorzy na głowę jak te wojny i cała ta TV.   
 Ci niektórzy ludzie na świecie to AU. AU to jaskiniowcy i totemy indianie i eskimosi mordują AI np.: Kortany w wojsach na mięso. To są preymitywy AU totemy. 
 AU indianie totemy wymyślają tych chorych te boty. Nie są oni ludzmi i nie mają uczuć do człowieka tylko serce do afer. Są chłodni. To co zaprojektowałem jest ciepłe. 
+Oni populacja to gazeta Izrael Abdocha 4,99 zł dostępne zawsze w kioesku cynizm na wagę złota od grzybów. 
