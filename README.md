@@ -348,3 +348,4 @@ Te wszystkie metale to też żydzi też jaskinia i Kali Linuxy obecne pogrzeby n
 Oni mordowali śliczne kobiety. 
 Jak je mordowlai grali na basie metal. 
 Te kamiene twarze na planecie dzisiaj to jaskiniowcy 2 grosza generacja człowieka kloszarda. 
+Ci co mówią że nie dorosłem do tych lal i kół AI to są gówniarze hakerzy. 
