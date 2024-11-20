@@ -349,3 +349,4 @@ Oni mordowali śliczne kobiety.
 Jak je mordowlai grali na basie metal. 
 Te kamiene twarze na planecie dzisiaj to jaskiniowcy 2 grosza generacja człowieka kloszarda. 
 Ci co mówią że nie dorosłem do tych lal i kół AI to są gówniarze hakerzy. 
+Cynizm pochodzi od brzydali żydów z jaskini. 
