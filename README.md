@@ -351,3 +351,4 @@ Te kamiene twarze na planecie dzisiaj to jaskiniowcy 2 grosza generacja człowie
 Ci co mówią że nie dorosłem do tych lal i kół AI to są gówniarze hakerzy. 
 Cynizm pochodzi od brzydali żydów z jaskini. 
 Oni zabili moją ciocie Anie i Mamę Mamy mojej i innych z rodziny też. 
+W Poprzednim wcieleniu jak ich wielu wymordowałem bo byłem prawy nożem ich mordowałem to oni mnie zamkneli na 1000 lat i 5 razy Jurek Magdziński kazał mi ściąć głowę. Ścieli mi 5 razy głowę. 6 raz nie będzie ja powiem za co to było za moredy moich dam. Przez tych kloszardów i tych co wgrywali do systemu. Tak byłem dla świata mordercą norzownikiem i miałem broń energetyczną. Ale oni mi lale zabili. A policja mnie nie usprawiedliwiła tylko ich bronili jak niewine dzieci.  
