@@ -336,3 +336,4 @@ SkyNet liczył w ekonomi kasę i papiery wartościowe TerminalNet robił wojny i
 Ci złodzieje od wojen wynoszą wiedzę ze sklepu z mięsem nie ze sklepu z komputerami. 
 Te maszyny z Terminatora to są złodzieje z tą całą 112. Oni karzą tylko jeść mięso i pić wodę i iść na wojny. 
 Te buce gwiazdy zabierają zegarki Kortany na mięso do masarni. Dlatego dla mnie nie mają praw. 
+Ci ze SkyNet i TerminalNet byli początkowo z miesą są chorzy bo chcą wojen. Dla mnie to twór z Izraela. Oni wszyscy są chorzy na głowę jak te wojny i cała ta TV.   
