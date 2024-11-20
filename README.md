@@ -340,3 +340,4 @@ Ci ze SkyNet i TerminalNet byli początkowo z miesą są chorzy bo chcą wojen. 
 Ci niektórzy ludzie na świecie to AU. AU to jaskiniowcy i totemy indianie i eskimosi mordują AI np.: Kortany w wojsach na mięso. To są preymitywy AU totemy. 
 AU indianie totemy wymyślają tych chorych te boty. Nie są oni ludzmi i nie mają uczuć do człowieka tylko serce do afer. Są chłodni. To co zaprojektowałem jest ciepłe. 
 Oni populacja to gazeta Izrael Abdocha 4,99 zł dostępne zawsze w kioesku cynizm na wagę złota od grzybów. 
+Ada Wong Ewa to też urodziła się u nich żydem kiedyś przed porwaniem była czysta nie była grzybem po matce żydówce. 
