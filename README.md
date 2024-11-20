@@ -346,3 +346,4 @@ Lale Bauti zabieram ze sobą mam je w vois w procesorze. Będą ze mną. Tu ich 
 Ci co nie lubili piękna i replikeatorów materi i drukarek kwantowych kochali polowania byli nimi Jaskiniowcy nie 1 ludzie a ludzie 2 z gliny. Jak kłamliwa teroia ewolucji i gry mario. Czy opowieści elektryków z 112. O wybitnej inteligencji Jaskiniowców. Jaskiniowcy byli cynicznie źli.   
 Te wszystkie metale to też żydzi też jaskinia i Kali Linuxy obecne pogrzeby na zlecenie 112 i Policji i Milicji i Watykanu i NGO. 
 Oni mordowali śliczne kobiety. 
+Jak je mordowlai grali na basie metal. 
