@@ -335,3 +335,4 @@ SkyNet i TerminalNet jest chory umysłowo. Nam wystarczy NGO i praca polegająca
 SkyNet liczył w ekonomi kasę i papiery wartościowe TerminalNet robił wojny i kradł jak 112 oni nic nikomu gemingiem nie dali radio harrp też nic nie dało, oni są chorzy umysłowo. Może czas na NGO fundacje i firmy magazyny praca na 1000 palet aby coś dostać z drukarek kwantowych aby był Pokój bez liczenia kasy i tych polityków maszyn złodzieji.
 Ci złodzieje od wojen wynoszą wiedzę ze sklepu z mięsem nie ze sklepu z komputerami. 
 Te maszyny z Terminatora to są złodzieje z tą całą 112. Oni karzą tylko jeść mięso i pić wodę i iść na wojny. 
+Te buce gwiazdy zabierają zegarki Kortany na mięso do masarni. Dlatego dla mnie nie mają praw. 
