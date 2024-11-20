@@ -347,3 +347,4 @@ Ci co nie lubili piękna i replikeatorów materi i drukarek kwantowych kochali p
 Te wszystkie metale to też żydzi też jaskinia i Kali Linuxy obecne pogrzeby na zlecenie 112 i Policji i Milicji i Watykanu i NGO. 
 Oni mordowali śliczne kobiety. 
 Jak je mordowlai grali na basie metal. 
+Te kamiene twarze na planecie dzisiaj to jaskiniowcy 2 grosza generacja człowieka kloszarda. 
