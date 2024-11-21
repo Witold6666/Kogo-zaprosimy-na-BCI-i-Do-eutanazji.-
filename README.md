@@ -357,3 +357,4 @@ Wszystkie te co są są zajente są z 112 nie mój typ. Wszystkie moje piękne s
 Wszyscy rodzą się semitami przez to żydowskie dziecko z bródką i koślawym nosem.  
 Chyba to byli niepełnsoprawni te lale dla mnie te od alimentów to też niepełnosprawni. 
 Te kobiety dla mnie są z internetu Ikatova 1 10 000 000 dolarów nie opłacalna inwestycja zakupu żony. Za darmo to tylko na 30 lat. Po tem opłaty lub rozwody. Sędziowie nie dorośli do tego aby tak dużo oczkiewać za zakup żony. Żony nie mam przez afery z opłatami. 
+Żydzi nie mają co wymyślać to wymyślają opłaty aby szkodzić miłości. Na moją korzyść ja jestem wolny od żydów bo opłaty chronią mnie od długów bycia razem z kimś.  
