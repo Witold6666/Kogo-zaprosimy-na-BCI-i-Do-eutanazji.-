@@ -359,3 +359,4 @@ Chyba to byli niepełnsoprawni te lale dla mnie te od alimentów to też niepeł
 Te kobiety dla mnie są z internetu Ikatova 1 10 000 000 dolarów nie opłacalna inwestycja zakupu żony. Za darmo to tylko na 30 lat. Po tem opłaty lub rozwody. Sędziowie nie dorośli do tego aby tak dużo oczkiewać za zakup żony. Żony nie mam przez afery z opłatami. 
 Żydzi nie mają co wymyślać to wymyślają opłaty aby szkodzić miłości. Na moją korzyść ja jestem wolny od żydów bo opłaty chronią mnie od długów bycia razem z kimś.  
 Jurek Magdziński wymyslił te opłaty aby wynieść żonę do inego wymiaru na zawsze aby się tu na nowo nie rodzić. 
+Ustawa Proejkt Awatar 2045 to ustawa wykupu na żonę z rzeczami i majątkiem mieszkaniec 10 000 000 dolarów, Zegarek maszyna SkyNet kobieta 250 000 000 zł, Gwen Tennyson Anudytka 500 000 000 zł. Taki jest cenik. Inaczej za darmo tylko 1 razowo na 30 lat i rozwód i zakaz zbliżania się. Przez te 30 lat trzeba pracować na tą kobietę. 
