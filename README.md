@@ -364,3 +364,4 @@ Do tych zegarków samsung wach pass żydzi się mi włamali kali linuxem próbow
 To miał i hau karze pracować na etacie na wszystko. Za te afery nikt nawet za te wojny i epidemie nie pójdzie do nich pracować to tyle o Izraelu. Oni to ten etatyzm.  
 Bo to prawda oni robili afery w całej histori radiem harrp tyle o Izraelu Kali linuxy też to robiły ci co je zbudowali. Oni byli tymi farjerami i mordami od tych afer. 
 Nie będę pracować na te ich voisy bo się nie opłaca chce powrotu lotto. Etat jak karzą żydzi mam gdzieś bo jest za 2000 zł.  
+Dla mnie oni to fajery bo karzą pracować na etacie. 
