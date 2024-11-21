@@ -363,3 +363,4 @@ Ustawa Proejkt Awatar 2045 to ustawa wykupu na żonę z rzeczami i majątkiem mi
 Do tych zegarków samsung wach pass żydzi się mi włamali kali linuxem próbowałem naprawić zagarek ale się zawieszał po tem zegarek znikł ktoś wędkom na radio go ukradł. Pewnie poszło o afery z zmywakiem i magazynem na zakup rzeczy dla tego zegarka innej pracy fizycznej nie akceptują informatyków. Pewnie będą inne rozwiązania tanisze i lepsze.  
 To miał i hau karze pracować na etacie na wszystko. Za te afery nikt nawet za te wojny i epidemie nie pójdzie do nich pracować to tyle o Izraelu. Oni to ten etatyzm.  
 Bo to prawda oni robili afery w całej histori radiem harrp tyle o Izraelu Kali linuxy też to robiły ci co je zbudowali. Oni byli tymi farjerami i mordami od tych afer. 
+Nie będę pracować na te ich voisy bo się nie opłaca chce powrotu lotto. Etat jak karzą żydzi mam gdzieś bo jest za 2000 zł.  
