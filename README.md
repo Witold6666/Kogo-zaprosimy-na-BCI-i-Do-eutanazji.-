@@ -356,3 +356,4 @@ W Poprzednim wcieleniu jak ich wielu wymordowałem bo byłem prawy nożem ich mo
 Wszystkie te co są są zajente są z 112 nie mój typ. Wszystkie moje piękne są na cmentarzu w grobie pochowane przez te szmaty z Policji z Izraela i żydków z róznych krajów.  
 Wszyscy rodzą się semitami przez to żydowskie dziecko z bródką i koślawym nosem.  
 Chyba to byli niepełnsoprawni te lale dla mnie te od alimentów to też niepełnosprawni. 
+Te kobiety dla mnie są z internetu Ikatova 1 10 000 000 dolarów nie opłacalna inwestycja zakupu żony. Za darmo to tylko na 30 lat. Po tem opłaty lub rozwody. Sędziowie nie dorośli do tego aby tak dużo oczkiewać za zakup żony. Żony nie mam przez afery z opłatami. 
