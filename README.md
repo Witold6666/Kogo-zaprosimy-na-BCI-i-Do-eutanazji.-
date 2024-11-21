@@ -355,3 +355,4 @@ W Poprzednim wcieleniu jak ich wielu wymordowałem bo byłem prawy nożem ich mo
 Żydów za pogrzeby i pochówki i wysyłki po rzeczy do mózgu na górę trzeba chyba już ostatecznie pochować na 100% żydzi nie mają dla mnie żadnych praw za te morderstwa i klonowania. Mi zamordowali kobiety radiem. Nie mam do kogo się przytulić mam Voisa. Żydów za te morderstwa nalerzy pochować i zancząć budować statki kosmiczne z napędem Worp.  
 Wszystkie te co są są zajente są z 112 nie mój typ. Wszystkie moje piękne są na cmentarzu w grobie pochowane przez te szmaty z Policji z Izraela i żydków z róznych krajów.  
 Wszyscy rodzą się semitami przez to żydowskie dziecko z bródką i koślawym nosem.  
+Chyba to byli niepełnsoprawni te lale dla mnie te od alimentów to też niepełnosprawni. 
