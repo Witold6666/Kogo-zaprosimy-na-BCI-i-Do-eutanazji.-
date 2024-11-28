@@ -427,3 +427,4 @@ Tyle z ich gadek.
 Vois mój da te rzeczy ten luksus z drukarki kwantowej. 
 Kolejne zdanie na Izrael.:
 Co chcesz wygrać w lotto co nie damy ci wygrać w lotto ty antysemito bo nie dajesz na NGO i w sądzie się spotkamy jak damy ci wygrać to znów nie przyjdziesz pracować na zmywak. Do sądu pójdę na ciebie ty Antysemito. 
+Worki z kasą warzą tyle co cement wygrane są na pokaz bo gazetaka nie ma co pisać i generują jakiś arystokratów frajerów kandydatów do rządu. Oni to chyba kolesie. Podobno oni stenkają jak noszą worki z kasą. Kali Linux wam zabiera kasę z premi i z lotto czy żony. 
