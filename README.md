@@ -396,3 +396,4 @@ Wawelski to ten jełop co karzę zostać na ziemi i się rodzić od nowa na nowo
 Jurcio Magdziński karze zostać na ziemi razem z Grupą Kali i Wawelskim rozdaja gwiazdy z kaliforni lub ten Szmelc ze SkyNet czy TerminalNet i karzą być bezdomnym i wynajmować dom. 
 Waweslski i Grupa kali 112 i Jurek Magdziński są upośledzeni chcą żyć w biedzie jak dziady Grecy filozofy bezdomni. Biznes Buda czy żyć jak przestań wiedźmini 112 Policjanty i Wojskowe. Oni nie chcą żyć jak Pan szlachcic tylko jak dziad. 
 Te Afery to Kali Linux i Harrp te wypadki na drodze i broń falowa EEG EKG czakry chodzi o wypadki na drodze 30 lat razem zostawiły go żony nie ma Przemek Przybysz i Grupa Kali Przybysz Harrp. 112. Bardzo przepraszam za nie uwagę nie umiem kierować autem to oni są te afery. Wesołowskie. To oni są do eutaniazji. 
+Choroby też to ta Policjia. 
