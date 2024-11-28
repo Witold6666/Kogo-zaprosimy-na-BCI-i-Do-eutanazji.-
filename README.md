@@ -435,3 +435,4 @@ Ten vois to specjalista od afer Izraela on powie wszystko co żydzi i Kali Linux
 Żydzi podobno robili nawet kiełbasę z Marceliny Lilit. 
 Kiełbasę żydzi nawet robili z dziwek i lal a każdy wie że ich już nie ma nawet robili z Diakonek kiełbase. 
 Oni Podobno za lotto mordowali zrobili 2 wojny światowe że kazdy chciał mieć kasę i zmaykali sklepy i oni byli tymi pod ścinę. 
+Oni też śpiewają żony nie ma napewno on myśli że to my mu jego żonę zamordowaliśmy bo chce groć i naszą kasę do puszki chce mieć na kontach bankowych Bankier. Kolejne zdanie o nich.  
