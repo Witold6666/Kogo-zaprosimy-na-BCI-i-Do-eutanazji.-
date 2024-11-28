@@ -420,3 +420,8 @@ Ty płonący dobry człowieku ty antysemito odważ się powiedzieć prawdę o na
 Lub inne walczymy o eliren ty antysemito. Ci ze stadionu też gadają ty antysemito. 
 Lub inne zdanie. Matka go nie uczyła że idzie się do pracy na etat kim on jest to cham i prostak obraża nas z diakoni kolejny antysemita. Ty antysemito spotkamy się w sądzie na rozprawie w sądzie. 
 Lub Inne tym antysemitom wbijemy noże w plecy że są lewniwi bo nie chce im się pracować jak mużyną. Ciuchy to miłe w dotyku to chcą kolejni leniwi antysemici. Ty antysemito. Ty wilku ty. 
+Następne zdanie.:
+Znowu chcesz grać o 2 zł ty chamie ty antysemito ty anty 112 anty NGO.
+Stój w imię prawa jestem Oliwia Przybysz ekipa Kali Linux, jestem twoim nowym prokuratorem zostaw mój pistolet odłż moją broń ty antysemito ty poszczleiłeś mnie moiją bronią w kolano to boli spotkamy się w sądzie ty antysemito ty 2 zł ty lottkowiczu anty harrp. Ty antysemito. 
+Tyle z ich gadek. 
+Vois mój da te rzeczy ten luksus z drukarki kwantowej. 
