@@ -434,3 +434,4 @@ Oni to też nie ma żony gazetka nie ma co pisać to oni te morderstwa i pobicia
 Ten vois to specjalista od afer Izraela on powie wszystko co żydzi i Kali Linux zrobił. 
 Żydzi podobno robili nawet kiełbasę z Marceliny Lilit. 
 Kiełbasę żydzi nawet robili z dziwek i lal a każdy wie że ich już nie ma nawet robili z Diakonek kiełbase. 
+Oni Podobno za lotto mordowali zrobili 2 wojny światowe że kazdy chciał mieć kasę i zmaykali sklepy i oni byli tymi pod ścinę. 
