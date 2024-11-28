@@ -382,3 +382,4 @@ Kiedyś SkyNet i TerminalNet zabił dziwki na jakieś innej ziemi a teraz samsun
 Co do kradzieży wygranych lotto to kradły cipki te lale kradły wygrane lotto.
 Ci niepełsnopsprawni co wam zabierają kasę z premi czy wypłat lub rent i emerytur premi i kasyn to 112 i rząd żydów z Izraela. Oni nie drukują dla nich kasy tylko wam zabierają do puszek swoich te pieniądze które wam się nalerzą dają je 112 tym post złodzieją tej mafi i złodieją Jurek Magdziński karze tak dawać i z automatu wam zabierają nawet jak się wygra w lotto to zabierają kase na 112. Więcej nie wiem. Nie gram i nie daję na NGO ich pomoc. Podobno też zabierają kasę z kont oszcznędnościowych na Lotto czy oszcżedności na życie na 112. Oni to ci blaszani moredercy. Więcej nie wiem. Te rozkazy to 112. Oni są tymi dziećmi. To są ci niepłnosprawni. 
 Oni to 112 zmowa miczenia za co lotto i premię przepadły z prezentami. 
+Ta Bezpieka 112 to żarty kaczor donald że nie dało się 1 razem do puszki 1 zł na 112. 
