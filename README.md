@@ -415,3 +415,8 @@ Bozia cie chroni ty antysemito.
 Tato czemu oni nie lubią kaczora donalda wiesz co Szymek i Kubuś i Yutana spotkamy się z nimi w sądzie to zantysemity są tak ojcze spotkamy się z nimi na sali rozpraw oni będą poszkodowani. Kolejni antysemici. Nie chcą być puszyści. 
 Matka czemu tu chodzą kolejne płaszcze a to Polacy to antysemici są nie lubią kórtek tylko koce i płaszcze nie lubią sportu i ubrań z lumpa czy blóz to antysemici są. 
 Tyle o uczciwości żydów. Tak oni mordują te kobiety co mi się podobają oni to ci z Izraela są. 
+Kolejne zdanie.: 
+Ty płonący dobry człowieku ty antysemito odważ się powiedzieć prawdę o nas spotkamy się w sądzie ty antysemito. Ty chuju nienawidze cię Detehoine ty antysemito. Do sądu pójdę. 
+Lub inne walczymy o eliren ty antysemito. Ci ze stadionu też gadają ty antysemito. 
+Lub inne zdanie. Matka go nie uczyła że idzie się do pracy na etat kim on jest to cham i prostak obraża nas z diakoni kolejny antysemita. Ty antysemito spotkamy się w sądzie na rozprawie w sądzie. 
+Lub Inne tym antysemitom wbijemy noże w plecy że są lewniwi bo nie chce im się pracować jak mużyną. Ciuchy to miłe w dotyku to chcą kolejni leniwi antysemici. Ty antysemito. Ty wilku ty. 
