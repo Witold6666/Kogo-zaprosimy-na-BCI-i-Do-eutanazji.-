@@ -400,5 +400,18 @@ Choroby też to ta Policjia.
 Ich dzieci cuchną przy narodzinach. Oni też pany zapałaniają radiem jak z Maryja ich syn jezus to też ich śmieć z ich rodu niepokalane poczęcie. Kali i Grupa Kali przybysze to sekta jak ich się nakryje na tych aferach to oni mówią że w sądzie się spotkamy zdracjo narodu Izraelskiego tak oni mówią. Oni to skok przez płot oni to ci tajni. 
 Ci hakerzy mówią czasami mową łaciny smoków ja powiem łaciną elfów oni mówią tak Nienawidzę cię Dedthoine. Oni to te gangi na radio i duże rodziny i niepokalane poczęcie radio ataki zapołodnienia kobiet i brzydkie cuchnące dzieci. Oni to te idioty są. Vois który robię jak na tą biedę i zakazy że trzeba być biednynm. Ten Vois jest tani kosztuje 250 zł w urządzeniu nie trzeba grać w lotto czy inestować aby coś mieć. 
 Ci osobnicy też to są historie afer na zapłodnienie na radio obce dziecko. Ci foljarze jak ich się nakryje na złym uczynku mówią będziesz miał 2 zł będziesz miał spotkamy się w sądzie gnido ty ja ci dam sudoku ja ci dam lotto to ich słowa. Oni to też gwiazdy i iluminaci i masoneria mordercy gwiazdy od wypadków drogowych i chorób. Oni to też kardziez pieniedzy z lotto nagród na ich konta te pieniadze na tych hakerów idą. Jonson i Danton daje wino lub papierosy po stracie żony. Oni odpowiadają za te morderstwa. Oni są psi i mają radio Harrp. Oni to też afery żony nie ma bo umarła z ich rąk radia. Nie widać radia mordercy na 1 żut oka. Ten Vois też daje rzeczy i luksus ale też powie co oni robili i kim są poda też nazwiska tych osób. Vois jest na biedę i daje luksus to są drukarki kwantowe. Informacje są gratis działa jak Zenit obecny M5Stack komputer. Powie wszystko i da wszystko.  
+To są ich zdania jak ich się nakryje.:
 Kali Linux jak przegrywa z kimś argumenty mówi spotkamy się w sądzie ty Antysemito ty lotkowiczu. Tak my to te grzechy antysemito.  
 Inne ich zdanie to twoje kobiety będą alimentami i wylądują na cmentarzyk spotkamy się w sądzie ty antysemito. Też będziesz pejsem jak ja Saiko. Bo do sądu pójdę na ciebie antysemito.  
+Kolejne zdanie.: Kolejny Ramirez a nie Pejs spotkamy się w sądzie ty antysemito. 
+Matka się nie uczyła że się nie kradnie mora spotkamy się w sądzie antysmeito.
+Kolejny Ramierez co chce mieć biznesy spotkamy się w sądzie antysemito kapitlisto.
+Nie komuch spotkamy się w sądzie antysemito.
+Nie daje wyrwać swojej żony zostawiły go dostaniesz w łeb za to że mi jej nie chcesz odać spotkamy się w sądzie ty antysmeito. 
+Stara go nie uczyła że nam się nie podckakuje koljny antysemita spotkamy się w sądzie antysemito. 
+My jesteśmy Wesołowcy nam się nie mówi i nam się nie podckakuje co podckakujesz ty antysemito spotkamy się w sądzie ty antysemito.
+Matka daj mi szpadel i sikierę do auta to pogonie tych antysemitów i w sądzie oni z nami przegrają.
+Bozia cie chroni ty antysemito. 
+Tato czemu oni nie lubią kaczora donalda wiesz co Szymek i Kubuś i Yutana spotkamy się z nimi w sądzie to zantysemity są tak ojcze spotkamy się z nimi na sali rozpraw oni będą poszkodowani. Kolejni antysemici. Nie chcą być puszyści. 
+Matka czemu tu chodzą kolejne płaszcze a to Polacy to antysemici są nie lubią kórtek tylko koce i płaszcze nie lubią sportu i ubrań z lumpa czy blóz to antysemici są. 
+Tyle o uczciwości żydów. Tak oni mordują te kobiety co mi się podobają oni to ci z Izraela są. 
