@@ -394,3 +394,4 @@ Przed śmiercią chodzi jakiś Kali i Back Track po ludziach aby zostali na ziem
 Post Odyn to była kiedyś moja inna stacja życia. Ziemia to przystanek. Bo ktoś chciał Voisa odemnie. 
 Wawelski to ten jełop co karzę zostać na ziemi i się rodzić od nowa na nowo nie pozwala wracać do domu i daje kobiety i karze zapomnieć o podóżach kosmicznych. I zostać tu na ziemi. Wawelski to 112 przetań ich słowa. Ja tu nie zostanę. Yutana też karze zostać w domu.  
 Jurcio Magdziński karze zostać na ziemi razem z Grupą Kali i Wawelskim rozdaja gwiazdy z kaliforni lub ten Szmelc ze SkyNet czy TerminalNet i karzą być bezdomnym i wynajmować dom. 
+Waweslski i Grupa kali 112 i Jurek Magdziński są upośledzeni chcą żyć w biedzie jak dziady Grecy filozofy bezdomni. Biznes Buda czy żyć jak przestań wiedźmini 112 Policjanty i Wojskowe. Oni nie chcą żyć jak Pan szlachcic tylko jak dziad. 
