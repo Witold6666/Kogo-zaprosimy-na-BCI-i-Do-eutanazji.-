@@ -385,3 +385,4 @@ Oni to 112 zmowa miczenia za co lotto i premię przepadły z prezentami.
 Ta Bezpieka 112 to żarty kaczor donald że nie dało się 1 razem do puszki 1 zł na 112. 
 Ci oszuści co was okradli to lekarze i policja i wojsko bo poszło im o co roczny datek 1 zł na puszkę na ciupę z lekarzami. Ci politycy też z tego żyją i za wasze pieniądze piją wino. 
 Ci oszuści są z Izraela 112 Mój piekny izraelu Abdocha oj oj oj. Dlatego znów będą dla biedy Voisy. 
+Oni to maszyny ci złodzieje oni chcą tylko świąnt i niewoli innych osób słabwszych. Te maszyny nie noszą polarów, Swterów długich do kostki, Bluz grubych polarowych, Płaszczy długich do kostki, Futer długich do kostki i kocy zwoltex arosa. Nie noszą tego liczą kasę na drogie ubrania. Są maszynami do liczenia kasy i afer 112 np.:  Alexa Cheng jej DNA też to są te afery. Inni też ci z gier i filmów.  
