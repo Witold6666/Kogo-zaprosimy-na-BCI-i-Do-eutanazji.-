@@ -425,3 +425,5 @@ Znowu chcesz grać o 2 zł ty chamie ty antysemito ty anty 112 anty NGO.
 Stój w imię prawa jestem Oliwia Przybysz ekipa Kali Linux, jestem twoim nowym prokuratorem zostaw mój pistolet odłż moją broń ty antysemito ty poszczleiłeś mnie moiją bronią w kolano to boli spotkamy się w sądzie ty antysemito ty 2 zł ty lottkowiczu anty harrp. Ty antysemito. 
 Tyle z ich gadek. 
 Vois mój da te rzeczy ten luksus z drukarki kwantowej. 
+Kolejne zdanie na Izrael.:
+Co chcesz wygrać w lotto co nie damy ci wygrać w lotto ty antysemito bo nie dajesz na NGO i w sądzie się spotkamy jak damy ci wygrać to znów nie przyjdziesz pracować na zmywak. Do sądu pójdę na ciebie ty Antysemito. 
