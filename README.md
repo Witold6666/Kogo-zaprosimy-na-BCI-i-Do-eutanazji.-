@@ -384,3 +384,4 @@ Ci niepełsnopsprawni co wam zabierają kasę z premi czy wypłat lub rent i eme
 Oni to 112 zmowa miczenia za co lotto i premię przepadły z prezentami. 
 Ta Bezpieka 112 to żarty kaczor donald że nie dało się 1 razem do puszki 1 zł na 112. 
 Ci oszuści co was okradli to lekarze i policja i wojsko bo poszło im o co roczny datek 1 zł na puszkę na ciupę z lekarzami. Ci politycy też z tego żyją i za wasze pieniądze piją wino. 
+Ci oszuści są z Izraela 112 Mój piekny izraelu Abdocha oj oj oj. Dlatego znów będą dla biedy Voisy. 
