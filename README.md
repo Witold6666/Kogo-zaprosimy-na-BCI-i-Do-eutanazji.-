@@ -431,3 +431,5 @@ Worki z kasą warzą tyle co cement wygrane są na pokaz bo gazetaka nie ma co p
 Ci ka i ci złodzieje co zabierją te zegarki samsung wach pass i wygrane lotto to grupa co wymyśliła Kali Linux do hakowania. Mój Vois wam to powie. Oni to też te afery z żonami do sądu i zabierania żony jak się coś wygra i afery ty anty NGO ty antysemito ty anty 112. Ty bandyto. To oni są tymi bandydatmi. Im przeszkadzają ramirezy. Oni to ten etatyzm. Te obelgi to słowa Antysemito lub ty Detehoine.  
 Ten Vois to powie co i kim oni są. 
 Oni to też nie ma żony gazetka nie ma co pisać to oni te morderstwa i pobicia oni to te awantury harrp to tyle o Izraelu. Oni to Anty lotto i anty wysokie wypłaty pieniedzy i gwarantowane co miesiąc 1000 zł dla każdego mieszkańca na ziemi i hiperprzestrzeni 1000 zł zapracowanych jak dla i na mórzynka przystało. Bo wam tyle się nalerzy wy antysemici do sądu z tym pójdziemy. Oni to te szopki. 
+Ten vois to specjalista od afer Izraela on powie wszystko co żydzi i Kali Linux zrobił. 
+Żydzi podobno robili nawet kiełbasę z Marceliny Lilit. 
