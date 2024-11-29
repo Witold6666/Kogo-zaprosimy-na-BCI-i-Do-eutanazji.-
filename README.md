@@ -462,3 +462,4 @@ Izrael to blasznai mordercy oni w tym byli 1 na ziemi.
 Ja zawsze mówiłem prawdę o mafiach i LGBT i Izraelu zawsze zabierali mi kobiety i zamieniali ich w mężczyn lub scinali im głowy za powiedzenie prawdy. Raz siedziałem 1000 lat bo sciołem Jonsonowi i Dantonowi głowę sikierą. Bo mi żony zabrali. A teraz znów powiem prawdę i kórwy mi ożywią a ich powieszą i odadzą ich ciała na szmelc. Nic im to nie da. Urzedy mają akta i DNA nawet jak je zabiją to je ożywią nauką. 
 To Bluźnierstwo modę LGBT wymyślił Izrael. Lotto nie ma bo Izrael marudzi że kasa z workami pieniedzmi dużo waży. Wojny poszły o lotto i brak gotówki. A zakaz lotto wymyślił Izrael aby chodzić na pielgrzymki religijne z szacunku do religi. 
 Etatyzm też wymyslił Izrael za miast produktu lotto co zakazał szpital z policja i wojskiem 112. 
+Tu na ziemi są przekrenty z Izraela na nasze pieniądze czyniac z nas niewolników przez to 112.  
