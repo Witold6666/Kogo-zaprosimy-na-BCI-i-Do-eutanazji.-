@@ -440,3 +440,4 @@ Oni mówią że są z USA z Stanów z Rosji z Ameryki, z Niemiec, z Szwecji a ci
 Izrael wymordował wszystkich pięknych ludzi i piękne kobiety. Tylko są Seniorzy z Izraela ładni jak Saiko. 
 Izrael wymordował piękne kobiety z Czech. A kto jest teraz tylko na ziemi tu seniorzy z Izraela. 
 Ta Policja nie pozwala mieć miłości jak robi się zakupy duże nawet nie pozwala mieć procesora do miłości. Chodzi o kobietę. Że nie można mieć jak chce się robić zakupy. 
+Wesołowskich i Kubusia i Judi chyba trzeba podać eutanazji. Oni nie pozwalją robić zakupów. 
