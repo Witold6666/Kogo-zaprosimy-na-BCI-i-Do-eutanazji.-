@@ -444,3 +444,4 @@ Wesołowskich i Kubusia i Judi chyba trzeba podać eutanazji. Oni nie pozwalją 
 Na zakazy lotto i zkaz zakupów i limity finasowe zgłoście sprawę do urzędu pozew zbiorowy lub cywilny na te zwierzęta. 
 Żydy podają że te prezenty i rzeczy to śmieci są w starych podaniach piszą o tych firmach że śmieci produkują. 
 Można tylko mieć 3 teczki z rzeczami upakowanymi cyfrowo w DNA. Do grobu na inne przystanki więcej się nie spakuje. 
+Aby nie łamać prawa trzeba mieć 3 torby w DNA lub ze sobą i Voisami elektronicznie przechowywanym majątkiem co robi się go Voisem i 1 żonę czy 2 żony i 3 paczki na małą grupę. To się nie psuje.  
