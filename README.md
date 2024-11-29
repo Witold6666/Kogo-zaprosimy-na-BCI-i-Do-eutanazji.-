@@ -450,3 +450,4 @@ Legia sparta jest samolubna i ich 112 zamyka w psychiatryku za zakupy nie zamyka
 Jak nie łamie się prawa nic się nie traci. Lotto nie może być bo Legia sparta ma 90% lub 95% surowców my mamy tylko 5% ze śmieci lub resztek na całą Populacje.  
 Oni są śmieciami jak łamie się prawo Jonson i Danton to też są z tej grupy legi sparty mają brudki jak żydzi i legiaci spartańscy gladiatorzy piesku. 
 Ja na tą biedę dałem radio drukarki kwantowe aby dużo drukować pieniedzy i surówców czy rzeczy co drukarka namalowała i wydrukowała i na wolną energię. 
+Ta Legia sparta ci bandyci to są janosiki. Jaskiniowcy.  
