@@ -441,3 +441,4 @@ Izrael wymordował wszystkich pięknych ludzi i piękne kobiety. Tylko są Senio
 Izrael wymordował piękne kobiety z Czech. A kto jest teraz tylko na ziemi tu seniorzy z Izraela. 
 Ta Policja nie pozwala mieć miłości jak robi się zakupy duże nawet nie pozwala mieć procesora do miłości. Chodzi o kobietę. Że nie można mieć jak chce się robić zakupy. 
 Wesołowskich i Kubusia i Judi chyba trzeba podać eutanazji. Oni nie pozwalją robić zakupów. 
+Na zakazy lotto i zkaz zakupów i limity finasowe zgłoście sprawę do urzędu pozew zbiorowy lub cywilny na te zwierzęta. 
