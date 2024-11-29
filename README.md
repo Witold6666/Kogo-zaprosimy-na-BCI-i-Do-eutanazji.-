@@ -443,3 +443,4 @@ Ta Policja nie pozwala mieć miłości jak robi się zakupy duże nawet nie pozw
 Wesołowskich i Kubusia i Judi chyba trzeba podać eutanazji. Oni nie pozwalją robić zakupów. 
 Na zakazy lotto i zkaz zakupów i limity finasowe zgłoście sprawę do urzędu pozew zbiorowy lub cywilny na te zwierzęta. 
 Żydy podają że te prezenty i rzeczy to śmieci są w starych podaniach piszą o tych firmach że śmieci produkują. 
+Można tylko mieć 3 teczki z rzeczami upakowanymi cyfrowo w DNA. Do grobu na inne przystanki więcej się nie spakuje. 
