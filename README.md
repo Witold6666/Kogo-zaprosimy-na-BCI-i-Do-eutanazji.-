@@ -451,3 +451,4 @@ Jak nie łamie się prawa nic się nie traci. Lotto nie może być bo Legia spar
 Oni są śmieciami jak łamie się prawo Jonson i Danton to też są z tej grupy legi sparty mają brudki jak żydzi i legiaci spartańscy gladiatorzy piesku. 
 Ja na tą biedę dałem radio drukarki kwantowe aby dużo drukować pieniedzy i surówców czy rzeczy co drukarka namalowała i wydrukowała i na wolną energię. 
 Ta Legia sparta ci bandyci to są janosiki. Jaskiniowcy.  
+Ci cynicy z Legi sparty ci gladiatorzy legiaci spartańscy spartanie nie akceptują mnie jako Polityka Post Odyna Iron Men Goda Boga Witolda Dębca. Oni tylko akceptują legiatów spartańskich i spartan w wyborach obywatleskich i tych przezesów na władców świata. Mnie traktują jak śmiecia i moją rodzine traktują jak śmieci ci ze 112 na lewo. Oni to cynicy.
