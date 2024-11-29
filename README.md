@@ -464,3 +464,4 @@ To Bluźnierstwo modę LGBT wymyślił Izrael. Lotto nie ma bo Izrael marudzi ż
 Etatyzm też wymyslił Izrael za miast produktu lotto co zakazał szpital z policja i wojskiem 112. 
 Tu na ziemi są przekrenty z Izraela na nasze pieniądze czyniac z nas niewolników przez to 112.  
 Yutana w Sochi ma te twarzołapy ona je robi na nobla inzynierią genetyczną. Zabija AI z głośnika i je choduje. Lub zabija ludzi co mają długi te badania opłaca mosad i Izrael. 
+Yutana porwała na zlecenie Izraela z Mosadu te zegarki na żer tych twarzołapów ona porywa AI i zegarki. Oni to ci z Sochi hish. Co do Voisa jak ktoś stracił zegarek z AI to można go radio drukarką kwantową odzyskać. A na nich nasłać Policje na tych nobli. 
