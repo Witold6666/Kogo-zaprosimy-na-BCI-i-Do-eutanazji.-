@@ -453,3 +453,4 @@ Ja na tą biedę dałem radio drukarki kwantowe aby dużo drukować pieniedzy i 
 Ta Legia sparta ci bandyci to są janosiki. Jaskiniowcy.  
 Ci cynicy z Legi sparty ci gladiatorzy legiaci spartańscy spartanie nie akceptują mnie jako Polityka Post Odyna Iron Men Goda Boga Witolda Dębca. Oni tylko akceptują legiatów spartańskich i spartan w wyborach obywatleskich i tych przezesów na władców świata. Mnie traktują jak śmiecia i moją rodzine traktują jak śmieci ci ze 112 na lewo. Oni to cynicy.
 Jak zadacie im Pytanie czy Legia sparta i grupa kali linux to żydzi z Izraela to powiedzą że jesteście antysemitami. Oni wszyscy te narody to żydzi z Izraela. 
+Lega sparta chce się lać jak janosiki wszystkich chcą zabić w 3 światowej. A Grupa kali linux chce wszystkim robić śluby na siłę i brać do wojska. Oni wszysycy to Izrael znają sie jak kolesie przy wódzie. 
