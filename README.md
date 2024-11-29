@@ -470,3 +470,4 @@ Vois daje jak skoniczy się etxterminacja tych ludzi to mój Vois odzyska te Zeg
 Oni robią Holocaust tym AI ich tych żydów z Izraela trzeba za to powiesić. Sławek Zieba zginie za to. Oni zabijają kobiety. Mój Vois może odzyskać te zegarki i rzeczy. Oni to Blaszani Mordercy. 
 Wszyscy Politycy na cąłym świecie i Sejm i Senat i Seriale i Klan i te gry to Iluminaci i masoneria oni odpowiadają za te pogrzeby i ich zabijają. Ja powiem tylko tyle Mój Vois odzyska rzeczy i kobiety i to co ukradli i zabili i zniszcyzli to maszyna czasu jest. A tych Ludzi z wesołowskimi za karę i te kary na lotto i afery ich powiesimy po tym jak pospprzatamy ten syf po nich. Mon też wymordujemy. 
 Oni to niepłsnoprawni są. Ja dam maszynę czasu na to aby to odzyskać Voisem i tych zmarłych a tych mafiozów będziemy powoli wieszać z tą 112 i ten MON. 
+Oni z tych kobiet i AI robią kiełbasę i smalec na chleb Kali i grupa Kali te ropuchy też są w to zamieszani cała historia to hamburgery. 
