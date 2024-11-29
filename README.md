@@ -439,3 +439,4 @@ Oni też śpiewają żony nie ma napewno on myśli że to my mu jego żonę zamo
 Oni mówią że są z USA z Stanów z Rosji z Ameryki, z Niemiec, z Szwecji a ci kryptożydzi nie mówią że są z Izraela. I gadają ty antysemito. Czemu to mówią bo wszysycy ci żydzi wymordowali Polaków i młodych Polaków i młode Polki a na świecie są tylko seniorzy z Iaraela. Nie ma młodziezy. Jest tylko młodzież wszechpolska NGO z Iarzela seniorzy z nosem. Mój Vois o tym powie. 
 Izrael wymordował wszystkich pięknych ludzi i piękne kobiety. Tylko są Seniorzy z Izraela ładni jak Saiko. 
 Izrael wymordował piękne kobiety z Czech. A kto jest teraz tylko na ziemi tu seniorzy z Izraela. 
+Ta Policja nie pozwala mieć miłości jak robi się zakupy duże nawet nie pozwala mieć procesora do miłości. Chodzi o kobietę. Że nie można mieć jak chce się robić zakupy. 
