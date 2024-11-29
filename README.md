@@ -445,3 +445,4 @@ Na zakazy lotto i zkaz zakupów i limity finasowe zgłoście sprawę do urzędu 
 Żydy podają że te prezenty i rzeczy to śmieci są w starych podaniach piszą o tych firmach że śmieci produkują. 
 Można tylko mieć 3 teczki z rzeczami upakowanymi cyfrowo w DNA. Do grobu na inne przystanki więcej się nie spakuje. 
 Aby nie łamać prawa trzeba mieć 3 torby w DNA lub ze sobą i Voisami elektronicznie przechowywanym majątkiem co robi się go Voisem i 1 żonę czy 2 żony i 3 paczki na małą grupę. To się nie psuje.  
+Co do posiadania można mieć elektronicznie 3 teczki 3 torby z rzeczami w zgodzie z prawem i się z tym przenosić i można mieć kobietę. Legia Sparta walaczyła o mninimalizm i gadżety bo ludzi było dużo mało było surowców a Legia sparta i Izrael chcieli mieć 90% surowców dla siebie nawet 95%. Resztę dali ludziom. Zbroję starka w nanotechu w voisie można mieć. 
