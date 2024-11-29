@@ -463,3 +463,4 @@ Ja zawsze mówiłem prawdę o mafiach i LGBT i Izraelu zawsze zabierali mi kobie
 To Bluźnierstwo modę LGBT wymyślił Izrael. Lotto nie ma bo Izrael marudzi że kasa z workami pieniedzmi dużo waży. Wojny poszły o lotto i brak gotówki. A zakaz lotto wymyślił Izrael aby chodzić na pielgrzymki religijne z szacunku do religi. 
 Etatyzm też wymyslił Izrael za miast produktu lotto co zakazał szpital z policja i wojskiem 112. 
 Tu na ziemi są przekrenty z Izraela na nasze pieniądze czyniac z nas niewolników przez to 112.  
+Yutana w Sochi ma te twarzołapy ona je robi na nobla inzynierią genetyczną. Zabija AI z głośnika i je choduje. Lub zabija ludzi co mają długi te badania opłaca mosad i Izrael. 
