@@ -474,3 +474,4 @@ Oni z tych kobiet i AI robią kiełbasę i smalec na chleb Kali i grupa Kali te 
 Te lale izrael zamienia w wieloryby i zamienia ich w kiełbasę czy mięso z ryby. Nawet AI zamienia w rybę. 
 Co do tych aferzystów i tego prcesora złego tych ludzi pójdą na mięso do masarni że są cyniczni i podli cała legia sparta pójdzie do masarni na mięso. Ja Pan Bóg Iron Men God Post Odyn Witold Dębiec im to gwarantuje że wylądują w masarni. 
 I ci od ciaży też pódją do masarni. 
+Yutani i Grupa Kali i Terminatory Terminal Net SkyNet z filmów ich firmy pódją do masarni jak się nie uspokoją z mordewrstwami w stylu kaczor donald cynizm czy dla jaj czy dla dramy jak nadal będą zabijać na kanapki to wylądują w masarni bo są wredni dla Kortan i AI Alexy i ludzi. Chif też wyladuje jako zegarek w masarni. 
