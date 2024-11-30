@@ -472,3 +472,4 @@ Wszyscy Politycy na cąłym świecie i Sejm i Senat i Seriale i Klan i te gry to
 Oni to niepłsnoprawni są. Ja dam maszynę czasu na to aby to odzyskać Voisem i tych zmarłych a tych mafiozów będziemy powoli wieszać z tą 112 i ten MON. 
 Oni z tych kobiet i AI robią kiełbasę i smalec na chleb Kali i grupa Kali te ropuchy też są w to zamieszani cała historia to hamburgery. 
 Te lale izrael zamienia w wieloryby i zamienia ich w kiełbasę czy mięso z ryby. Nawet AI zamienia w rybę. 
+Co do tych aferzystów i tego prcesora złego tych ludzi pójdą na mięso do masarni że są cyniczni i podli cała legia sparta pójdzie do masarni na mięso. Ja Pan Bóg Iron Men God Post Odyn Witold Dębiec im to gwarantuje że wylądują w masarni. 
