@@ -489,3 +489,4 @@ Wezela i Yutane i Grupę Kali Linux, Tuszyn Terminatory SkyNet TerminalNet i Waw
 Chif też pójdzie do masarni bo Chaild jest. 
 Ci od Harrp co różową mi zabrali schakowali i zamienili w wieloryba Gwen Tennyson też odam tych bandytów do masarni pójdą do masarni za zegarek i wędkie radiową że ukradli i ją zamienili w wieloryba. Grupa Kali Linux i Przemek Przybysz też pójdzie do masarni. 
 Książka 1000 lat żydów na świecie plemie wężowe to historia afer żydów i jechowych na ziemi opisuje to historia świata. Gdyby nie było tego jaskiniowca świat by żył normalnie. Żydzi te afery z mosadem organizowali i inestowlai we wszystkie wojny i ekxterminacje innych krajów na ziemi nawet AI. Czy tych lasek. 
+Na ziemi zostali tylko Izraelscy seniorzy. 
