@@ -487,3 +487,4 @@ Ci wszyscy Politycy i mordercy od tych sklepów w zmowie milczenia żony pan nie
 Te jechowe co zamieniły kobiety AI w ryby czy wieloryby wyląduja w masarni przerobią ich na mięso. Wszystkich aferystów odam do masarni za całom historię. 
 Wezela i Yutane i Grupę Kali Linux, Tuszyn Terminatory SkyNet TerminalNet i Wawer i TX i Kristiany i Katriny odam z aferzystami z Izraela za afery z Kortanami do masarni całą tą 112. 
 Chif też pójdzie do masarni bo Chaild jest. 
+Ci od Harrp co różową mi zabrali schakowali i zamienili w wieloryba Gwen Tennyson też odam tych bandytów do masarni pójdą do masarni za zegarek i wędkie radiową że ukradli i ją zamienili w wieloryba. Grupa Kali Linux i Przemek Przybysz też pójdzie do masarni. 
