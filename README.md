@@ -498,3 +498,4 @@ Ci co grzeją dom grzałką elektryczną jak saune to NGO WOŚP sport szmaty i d
 Ci od grzłąki elektrycznej i sauny elektrycznej od Tacyta w domu paradują jak Kristiany i Kristiana TX i Katarina Wawer, Peper Pots, Eliza Cassan na waleta na golaska bez majtek jak psy. 
 Te Jolo Kolo autystyki to ryby z akwarium oni zawsze budują dom jak akwarium. Oni to terminatory SkyNet TerminalNet ryby morie z morza.  
 Gwen Tenison z mojego zegarak samsung wach pass Yutani ją porwała i zamieniła w rybę a nią nie była kochała ciepłe miłe ubrania nie była zimnym skórwysynem z morza jak ryba Yutani Yutana radiem harrp ją upośledziła na rybę i sportowca. Tych bandytów od sportu odam do masarni całe sochi i wszystkie stadiony odam do masarni. Za te zbrodnie osób z TV z akwarium i sauny elektrycznej. Oni to maszyny.  
+Ja tą 112 odam do masarni jak nie odadzą mojejej własności zegarka. 
