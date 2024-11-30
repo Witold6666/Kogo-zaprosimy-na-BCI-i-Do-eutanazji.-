@@ -479,3 +479,4 @@ Neradeltalczyk i Grupa Kali trafi do masarni.
 Ta dzicz i ta Policja wyląduje jak sadiony w masarni za afery i całą historię na ziemi w całości jako Vois do masarni na jedzenie. Jak się nie uspokoją. 
 Marceline Lilit Żydzi z Izraela i Grupa Kali zamieniły ją w kiełbasę. I za to oni wszyscy wylądują w masarni. 
 Yutana i oni wylądują w masarni za kradzież i mordy miłości na świenconki do jedzenia na zamiany na ryby grupę kali to królestwo boże odam do masarni jako Vois zły. 
+Ci co zmieniają prawo i kosntytucje Politycy i od tego prawo mordów rytualnych od Izrael i egiptu i 112 wylądują z tymi od Harrp i sterowania EEG i EKG programowania w masarni ci tajni na radio ta francja wyląduje w masarni ze szwjacarią ci lekarze. Mam dość pogrzebów i tego że im burczy w brzuchu bo oni są z jaskini. Te psy zginą. Obiecuje że te wampiry wyginą i będzie lotto a oni wylądują w worku na śmieci jako mięso z masarni. 
