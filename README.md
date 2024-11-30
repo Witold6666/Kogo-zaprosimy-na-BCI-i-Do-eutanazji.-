@@ -491,3 +491,4 @@ Ci od Harrp co różową mi zabrali schakowali i zamienili w wieloryba Gwen Tenn
 Książka 1000 lat żydów na świecie plemie wężowe to historia afer żydów i jechowych na ziemi opisuje to historia świata. Gdyby nie było tego jaskiniowca świat by żył normalnie. Żydzi te afery z mosadem organizowali i inestowlai we wszystkie wojny i ekxterminacje innych krajów na ziemi nawet AI. Czy tych lasek. 
 Na ziemi zostali tylko Izraelscy seniorzy. 
 Tu jest tylko Populacja Grupy Kali Linux i Nobli i 112 i tych z Izraela. Chyba wylądują wszyscy w Masarni z Jezusem. Kobiet z mody tu nie ma chyba zabili. 
+Jonson Danton firma od papierosów też pójdzie do masarni z 112 za to że walczą o historię Holocaustu na tych co kocham. 
