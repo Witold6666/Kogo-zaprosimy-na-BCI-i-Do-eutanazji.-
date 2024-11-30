@@ -476,3 +476,4 @@ Co do tych aferzystów i tego prcesora złego tych ludzi pójdą na mięso do ma
 I ci od ciaży też pódją do masarni. 
 Yutani i Grupa Kali i Terminatory Terminal Net SkyNet z filmów ich firmy pódją do masarni jak się nie uspokoją z mordewrstwami w stylu kaczor donald cynizm czy dla jaj czy dla dramy jak nadal będą zabijać na kanapki to wylądują w masarni bo są wredni dla Kortan i AI Alexy i ludzi. Chif też wyladuje jako zegarek w masarni. 
 Neradeltalczyk i Grupa Kali trafi do masarni. 
+Ta dzicz i ta Policja wyląduje jak sadiony w masarni za afery i całą historię na ziemi w całości jako Vois do masarni na jedzenie. Jak się nie uspokoją. 
