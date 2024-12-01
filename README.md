@@ -508,3 +508,4 @@ To idzie na NGO. Też mi się to nie podoba ale żydzi kradną. Oni kradną zaws
 Wszyscy oni to Izrael te sklepy też. 
 NGO też boerze kasę z lotto i wypłaty. 
 A co do kobiet z zegarków one idą na kiełbase lub organy. Oni to mafia. 
+Ci z tej mafi to Tuszyn, Kali Linux, Back Track i SlaxNet. I oni to progamy z TV tak to leciało z Polastu i ich TV Halo Polsat i inne tego typu TV oni kradną z lotto na NGO.  
