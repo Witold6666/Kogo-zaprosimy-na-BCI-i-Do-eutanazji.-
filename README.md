@@ -506,3 +506,5 @@ Paniusiu z zingielki z 112 Policji i Watykanie i Milicji wy wszysycy przeciko na
 Te kradzieże kasy z lotto i premi czy wypłaty to robi nabierząco Izrael mosad.  
 To idzie na NGO. Też mi się to nie podoba ale żydzi kradną. Oni kradną zawsze tą kase z poglądów religijno filozoficznych. Ja chce aby każdy miał tą kasę ale oni Kłucą się o Hlolocaust tyle. Oni mają nas gdzieś tylko liczy się dla nich historia. 
 Wszyscy oni to Izrael te sklepy też. 
+NGO też boerze kasę z lotto i wypłaty. 
+A co do kobiet z zegarków one idą na kiełbase lub organy. 
