@@ -515,3 +515,6 @@ Oni maja armię hakerów w harrp i w populacji na rzesze NGO to wszystko to izra
 Mit o Judas off midas i Ojciec Aladyna i mit o Prince off persia oni to te kradzieże do kataru i dubaju na ave abdocha. 
 Te kradzieże to wywóz śmieci. Złoto jest w sklepach i internecie w sklepie lub allegro. 
 To co ni dają za żony to gwiazdy afer mordercy i żebaracy lenie i złodzieje.  
+Ten skrypt służy do produkcji robotów do pracy i radia budowlanego. Lub budowania automatycnzych inteligentnych fabryk z AI robotami. Czy budowy miast. 
+Ci oszuści co opisuje wyciagali radiem energię i siły witalne co efektem było postarzenie ciała człowieka. Wysysali energię życiową. To jakieś ryby były. 
+Tą dzicz skasuje z globu radiem. 
