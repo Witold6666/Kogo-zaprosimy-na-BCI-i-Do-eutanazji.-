@@ -512,3 +512,4 @@ Ci z tej mafi to Tuszyn, Kali Linux, Back Track i SlaxNet. I oni to progamy z TV
 Ci co grają w lotto są naiwni dostją rachunki od żydów za lotto i pracują na nagrodę żone czy kasę na zmywaku 42000 lat i żalą się że są niewolnikami. Ja nie gram odradzam gry. 
 Te używanie seksualne to też radio harrp i ten hiv te zdrady. Radio Harrp to też sztuka wojny jak np.: Choroby i kontuzje. To wszystko ich kaczor donald za to że każdy chce kasę a nie chce żyć w morlanej biedzie. 
 Oni maja armię hakerów w harrp i w populacji na rzesze NGO to wszystko to izrael. 
+Mit o Judas off midas i Ojciec Aladyna i mit o Prince off persia oni to te kradzieże do kataru i dubaju na ave abdocha. 
