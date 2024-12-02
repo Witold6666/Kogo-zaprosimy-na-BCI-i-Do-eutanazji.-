@@ -523,3 +523,4 @@ Kali i to szambo romnożył się na planecie i robił tornada i huragany i afery
 Ci aferzyści Kali Linux Zbudowali Harrp robili wojny kontrolą umysłu na radio harrp i mocami telkinezy harrp to wzmacniacz choroby i chłoniaki i inne plagi też harrp i kali linux.
 To wszystko 112 te venomy. 
 Te sądy i show i zdrady wojny i choroby to show hakery i ich radio Harrp. Zakazy też że nic nie wolno czy zabili kogoś np.: AI Koło to hakery i radio Harrp cały wirus to oni. 
+Zamknijcie wszystkie urzędy Miasta i starostwa i Sjemy i senaty i agencje wywiadowcze i komendy i komisjarty sił specjalnych oni was niewolą i zbaijają oni karadną kasę z wysokich zarobków oni to borys jędrychowicz zabijają Kortany i Alexy rodzą się z nich te śmieci do systemu. Powołajcie małe grupy ochrony ale roboty plastikowo blaszane. I roboty do agencji lotów kosmicznych ludzie pójdą do domu na czas wolny. Bedzie zawsze sylweter i Niedziela i koncerty bez Borysa Jędrychowicza psa ducha. 
