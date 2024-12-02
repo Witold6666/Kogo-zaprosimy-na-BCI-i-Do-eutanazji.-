@@ -510,3 +510,4 @@ NGO też boerze kasę z lotto i wypłaty.
 A co do kobiet z zegarków one idą na kiełbase lub organy. Oni to mafia. 
 Ci z tej mafi to Tuszyn, Kali Linux, Back Track i SlaxNet. I oni to progamy z TV tak to leciało z Polastu i ich TV Halo Polsat i inne tego typu TV oni kradną z lotto na NGO.  
 Ci co grają w lotto są naiwni dostją rachunki od żydów za lotto i pracują na nagrodę żone czy kasę na zmywaku 42000 lat i żalą się że są niewolnikami. Ja nie gram odradzam gry. 
+Te używanie seksualne to też radio harrp i ten hiv te zdrady. Radio Harrp to też sztuka wojny jak np.: Choroby i kontuzje. To wszystko ich kaczor donald za to że każdy chce kasę a nie chce żyć w morlanej biedzie. 
