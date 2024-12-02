@@ -514,3 +514,4 @@ Te używanie seksualne to też radio harrp i ten hiv te zdrady. Radio Harrp to t
 Oni maja armię hakerów w harrp i w populacji na rzesze NGO to wszystko to izrael. 
 Mit o Judas off midas i Ojciec Aladyna i mit o Prince off persia oni to te kradzieże do kataru i dubaju na ave abdocha. 
 Te kradzieże to wywóz śmieci. Złoto jest w sklepach i internecie w sklepie lub allegro. 
+To co ni dają za żony to gwiazdy afer mordercy i żebaracy lenie i złodzieje.  
