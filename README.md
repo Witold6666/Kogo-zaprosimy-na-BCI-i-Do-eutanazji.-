@@ -518,3 +518,4 @@ To co ni dają za żony to gwiazdy afer mordercy i żebaracy lenie i złodzieje.
 Ten skrypt służy do produkcji robotów do pracy i radia budowlanego. Lub budowania automatycnzych inteligentnych fabryk z AI robotami. Czy budowy miast. 
 Ci oszuści co opisuje wyciagali radiem energię i siły witalne co efektem było postarzenie ciała człowieka. Wysysali energię życiową. To jakieś ryby były. 
 Tą dzicz skasuje z globu radiem. 
+Oni to TV szambo. 
