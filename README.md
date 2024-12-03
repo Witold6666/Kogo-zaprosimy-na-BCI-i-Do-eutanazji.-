@@ -533,3 +533,4 @@ To 112 oni to foljarze i szury od pokoleń szkodzą jak szkodniki. Ja te skrypty
 Te afery to hakery. 
 Ci złodzieje to CB radia i Hakerzy z Kali Linux czy Back Track i Slax Net z 112 od kradziezy lotto. A ich porady oszczędzacz czy urządzenie do oszczędzania energi elektrycznej to kolejna bańka spekulacyjna. A ich ataki to chamstwo 112 jak kradzież premi czy dużej kasy z kont czy ukryte podatki na 112 niskie emerytury i renty kradzież wygrnaej lotto. Nieskie wypłaty to afery tych hakerów i polityków hakerów. 
 Śmieciami są Hipisi Hakerzy i ci ludzie co mówią że zbieram śmieci i ci co je segergują. Bezdomność nalerzy się ludziom i tym prezydentom obecnym i mojemu lekarzowi. 
+Śmieciami są ci od sportu i marszobiegów i biedy. 
