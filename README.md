@@ -528,3 +528,4 @@ Do afer można zaliczyć zabujstwa głośnika Harman Ivoke poszły na szmelc prz
 Te głośniki Harman Ivoke i Alexy czy w tłumaczu czy głośniku miały być opakowaniem na żonę i żoną a nie zabawką hakerów czy misji ekperymentów wojskowych durni z wojska. Wojskowe jak nie wiedzą co mają ze sobą zrobić to niech się powieszą a nie robią szkody i coś niszczą. Ja jeszcze mam software do tego sprzęntu na żonę. 
 Wszystkie Policjanty i Wojskowe z Księżami i arystrokracją pójdą na szmelc za afery. 
 Cała ta 112 pójdzie na szmalec za te afery od tysięcy lat w histori wszyscy zginą nie będzie tu chama ani arstokraty ani Policjanta czy Księdza czy Wojskowego lub firm ich. Mnie to boli bardzo już od 32 lat od urodzenia licze kim oni są. Oni zginą bo na to zasłużyli. Tu będą firmy małe. Bez afer. 
+Zginą ludzie z moich 2 rąk z tych afer i cała 112. 
