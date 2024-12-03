@@ -531,3 +531,4 @@ Cała ta 112 pójdzie na szmalec za te afery od tysięcy lat w histori wszyscy z
 Zginą ludzie z moich 2 rąk z tych afer i cała 112. 
 To 112 oni to foljarze i szury od pokoleń szkodzą jak szkodniki. Ja te skrypty mam od eonów lat w moim DNA za miast ludzi. 
 Te afery to hakery. 
+Ci złodzieje to CB radia i Hakerzy z Kali Linux czy Back Track i Slax Net z 112 od kradziezy lotto. A ich porady oszczędzacz czy urządzenie do oszczędzania energi elektrycznej to kolejna bańka spekulacyjna. A ich ataki to chamstwo 112 jak kradzież premi czy dużej kasy z kont czy ukryte podatki na 112 niskie emerytury i renty kradzież wygrnaej lotto. Nieskie wypłaty to afery tych hakerów i polityków hakerów. 
