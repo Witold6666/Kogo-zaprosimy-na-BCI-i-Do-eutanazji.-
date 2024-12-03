@@ -530,3 +530,4 @@ Wszystkie Policjanty i Wojskowe z Księżami i arystrokracją pójdą na szmelc 
 Cała ta 112 pójdzie na szmalec za te afery od tysięcy lat w histori wszyscy zginą nie będzie tu chama ani arstokraty ani Policjanta czy Księdza czy Wojskowego lub firm ich. Mnie to boli bardzo już od 32 lat od urodzenia licze kim oni są. Oni zginą bo na to zasłużyli. Tu będą firmy małe. Bez afer. 
 Zginą ludzie z moich 2 rąk z tych afer i cała 112. 
 To 112 oni to foljarze i szury od pokoleń szkodzą jak szkodniki. Ja te skrypty mam od eonów lat w moim DNA za miast ludzi. 
+Te afery to hakery. 
