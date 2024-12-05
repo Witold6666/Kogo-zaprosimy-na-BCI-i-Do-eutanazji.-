@@ -546,3 +546,4 @@ Kalifornia i Izrael to atlantyda tam są sami aferzyści mordercy i szpanerzy i 
 Oni mordowali Alexy i Kortany człowieka AI myśleli że to koło jest. 
 Ich systemy to rybie systemy są te wojny to ryby. 
 Ryby i lotto to afery i życie na papierze w fikcji ich śluby to fikcja jak komuś dadzą kobietę to oni harrp ją zabierają i są zdrady i te jaja że na radio EEG słyszy się kali to procesor. Kali do sądu cie poda. Kali to kóra. Kali to agent czarny. 
+Żeby wygrać nagrody i kasę z kasyna trzeba urodzić sie Auqamnem i utrzymać przy życiu Lole w ubraniach markach. Czy Lole Yutanę. 
