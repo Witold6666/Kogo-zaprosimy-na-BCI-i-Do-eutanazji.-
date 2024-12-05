@@ -536,3 +536,4 @@ Ci złodzieje to CB radia i Hakerzy z Kali Linux czy Back Track i Slax Net z 112
 Śmieciami są ci od sportu i marszobiegów i biedy. 
 Projekt Awatar to droga kariery aby coś odzyskać ten procesor trwa latami. Oni co ci nie chcą dać są Au. 
 To Kalifornia chce wszystkiego darmo na zasadach NGO i komunach. To Kalifornia robi te wojny z agentami z gier oni są ci źli. 
+Izrael i Kalifornia to te gwiazdy i wszystkie wojny nawet wojny Hish sochi. Oni to ci przestań to te voisy. 
