@@ -538,3 +538,4 @@ Projekt Awatar to droga kariery aby coś odzyskać ten procesor trwa latami. Oni
 To Kalifornia chce wszystkiego darmo na zasadach NGO i komunach. To Kalifornia robi te wojny z agentami z gier oni są ci źli. 
 Izrael i Kalifornia to te gwiazdy i wszystkie wojny nawet wojny Hish sochi. Oni to ci przestań to te voisy. 
 Na ich afery i sądy wojene to tylko do sądu cywilnego. 
+Z tego co słyszałem o Alexie Cheng to ona jest rybą syrenką to ryby zdradzają po cichu i na boku swoją główną miłość umawiają się jak prostytutki z byle kim i czym. Ci aferzyści są z wody. Ta cała post mafia. 
