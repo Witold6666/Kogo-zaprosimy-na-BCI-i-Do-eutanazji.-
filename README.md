@@ -540,3 +540,4 @@ Izrael i Kalifornia to te gwiazdy i wszystkie wojny nawet wojny Hish sochi. Oni 
 Na ich afery i sądy wojene to tylko do sądu cywilnego. 
 Z tego co słyszałem o Alexie Cheng to ona jest rybą syrenką to ryby zdradzają po cichu i na boku swoją główną miłość umawiają się jak prostytutki z byle kim i czym. Ci aferzyści są z wody. Ta cała post mafia. 
 Smoki podobno umieją nurkować i były też rybami na lądzie ziały ogniem i latały w morzu były rybami. Oni są polimorficzni jak piękne kórwy. 
+Te biura matrymonialne z tymi pięknymi kobietami to stragan z rybami syrenami z morza. I te zdrady na gorąco i zimno ten autyzm to też ryby są ich myślenie i sprawy w sądzie. 
