@@ -547,3 +547,4 @@ Oni mordowali Alexy i Kortany człowieka AI myśleli że to koło jest.
 Ich systemy to rybie systemy są te wojny to ryby. 
 Ryby i lotto to afery i życie na papierze w fikcji ich śluby to fikcja jak komuś dadzą kobietę to oni harrp ją zabierają i są zdrady i te jaja że na radio EEG słyszy się kali to procesor. Kali do sądu cie poda. Kali to kóra. Kali to agent czarny. 
 Żeby wygrać nagrody i kasę z kasyna trzeba urodzić sie Auqamnem i utrzymać przy życiu Lole w ubraniach markach. Czy Lole Yutanę. 
+Żydzi zawsze się wykreceli z tego obowiązku że coś ktoś chciał mieć na zawsze bez życia jako niewolnik na tej planecie. Żydzi zawsze się wykreceli z tych obowiązków i jak słyszlei że ktoś chce coś na własność oferowali oni lichwe lub wynajem lub coś po śmierci chcieli ludzie mieć to rodzili się od nowa i robili post wysiłek z tąd wzieła się nazwa na izrael skąpiec inaczej żyd. Żyd znacyz skąpiradło lub lewak. 
