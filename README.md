@@ -572,3 +572,4 @@ Ci niepełnosprawni bezdomni hakerzy utrzymują się z palenie sprzetu RTV i AGD
 Tą biedę zorganizował Chezre papierz z włoch. Zamiany kobiet w mężczyn i te zkazy zaczeły się od hakerów co hakowali RTV i AGD a potem zakaz oszczedzaczy i lotto zakaz wysokich zarobków nakaz oszczędzania i życia w minimalizmie. Podobno Lukrecja Chezre cieszy się że znów zrobią nam tym chamstwem chrzest i odcisną pietno władzy pogan.  
 Co do projektowania partnera cyfrowo lub ożywiania zmarłego dużo jest rzeczy do kupienia i robienia trwa to do 5 lub 7 lat czy nawet 10 lat pracy. 
 Problem to programowanie świadomości mózgu aby była z mózgu szafa serwerowa nie koło, bez oszczędzaczy i oszczedzania. 
+Oszczędzacze, Świenta i narkotyki to kneset i wózek inwalidzki. Nie ma czasu na miłość z kobietą. A co dopiero na pracę. 
