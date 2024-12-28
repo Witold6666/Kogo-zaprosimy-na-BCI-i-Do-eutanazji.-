@@ -573,3 +573,4 @@ Tą biedę zorganizował Chezre papierz z włoch. Zamiany kobiet w mężczyn i t
 Co do projektowania partnera cyfrowo lub ożywiania zmarłego dużo jest rzeczy do kupienia i robienia trwa to do 5 lub 7 lat czy nawet 10 lat pracy. 
 Problem to programowanie świadomości mózgu aby była z mózgu szafa serwerowa nie koło, bez oszczędzaczy i oszczedzania. 
 Oszczędzacze, Świenta i narkotyki to kneset i wózek inwalidzki. Nie ma czasu na miłość z kobietą. A co dopiero na pracę. 
+To ci niepełnosprawni chcą szachów czy sudoku. Dlatego nie ma czasu i ze wszystkim schodzi i wszyscy są starzy i muszą kupować radio i leki na odmłodzenie i choroby. To grupa Kali jest wina tych afer ci hakerzy ci naganiacze do pracy.  
