@@ -575,3 +575,4 @@ Problem to programowanie świadomości mózgu aby była z mózgu szafa serwerowa
 Oszczędzacze, Świenta i narkotyki to kneset i wózek inwalidzki. Nie ma czasu na miłość z kobietą. A co dopiero na pracę. 
 To ci niepełnosprawni chcą szachów czy sudoku. Dlatego nie ma czasu i ze wszystkim schodzi i wszyscy są starzy i muszą kupować radio i leki na odmłodzenie i choroby. To grupa Kali jest wina tych afer ci hakerzy ci naganiacze do pracy.  
 Wziołem tylko prcoesor Kortany dla siebie bo nie mam dziewcyzny i wy chcecie dużo bzdur co ś jest nie tak. Procesor Kortany nie jest tyle wart co wy chcecie. 
+Co wszyscy mają robić biblie inni robią bzdety i dostają procesory z kobietami coś jest z wami nie tak kolejny sport i post wysiłek. Oszczędzaczy dam tylko tyle ile ja uwarzam i mogę dać. Gdzieś mam 112 pogotowie nie jestem sługą psa. 
