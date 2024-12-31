@@ -589,3 +589,4 @@ Przykładem kiepskiej edukacji za publiczne pieniadze jest wykrztałcenie Kristi
 Co do tych kobiet Kristiany TX Loken i Katariny Wawer one to bambo bo są publiczne. 
 Te przegrane lotto i słabe pensje to strajki głodowe tych co nas obsługują. Tyle wiem. 
 Lotto nie płaci nagród w kasie tylko daje zegarki z maszynami do życia za 12.50 lub 25 zł. A kasę biorą ci frajerzy od kali linux. Te sikory to kali linux obszczymury może Amazon je daje. Nie dają kasy za lotto i nie ma życia. Też zabierają z lokat i z pensji wysokiej. 
+Złodzieje ci biorą kasę z lotto dla siebie. I oni dają narkotyki za grę w lotto. Amazon kradnie kasę z lotto oni to Izrael kasę kradną nawet z dużych pensji etatu. 
