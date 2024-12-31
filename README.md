@@ -591,3 +591,4 @@ Te przegrane lotto i słabe pensje to strajki głodowe tych co nas obsługują. 
 Lotto nie płaci nagród w kasie tylko daje zegarki z maszynami do życia za 12.50 lub 25 zł. A kasę biorą ci frajerzy od kali linux. Te sikory to kali linux obszczymury może Amazon je daje. Nie dają kasy za lotto i nie ma życia. Też zabierają z lokat i z pensji wysokiej. 
 Złodzieje ci biorą kasę z lotto dla siebie. I oni dają narkotyki za grę w lotto. Amazon kradnie kasę z lotto oni to Izrael kasę kradną nawet z dużych pensji etatu. 
 To Hakerzy kradną kasę z lotto i pensji z etatu wysokiej pensji na NGO na Izrael.  
+Hakerzy kradną po cichu lotto, kardną duże wypłaty z kont z etatu hakerzy.  
