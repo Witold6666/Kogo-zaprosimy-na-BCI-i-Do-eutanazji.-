@@ -588,3 +588,4 @@ Te afery są tylko za publiczne pienidze policji i federalnych i harrp. Sektor p
 Przykładem kiepskiej edukacji za publiczne pieniadze jest wykrztałcenie Kristiany Loken TX i Katariny Wawer za publiczne pieniądze CKU aktorki z taniego teatru komnizmu 112. 
 Co do tych kobiet Kristiany TX Loken i Katariny Wawer one to bambo bo są publiczne. 
 Te przegrane lotto i słabe pensje to strajki głodowe tych co nas obsługują. Tyle wiem. 
+Lotto nie płaci nagród w kasie tylko daje zegarki z maszynami do życia za 12.50 lub 25 zł. A kasę biorą ci frajerzy od kali linux. 
