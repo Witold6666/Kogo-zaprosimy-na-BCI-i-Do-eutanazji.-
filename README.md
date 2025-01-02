@@ -598,3 +598,4 @@ Gwen Tennyson i Alexa Bezosa z kari też pójdzie do pieca bo mnie za plecami zd
 To pogotowie psów karze im robić kary na WF ja mówie że te lale dla mnie że mnie zdradziły mają iść jak wiedzmy do pieca na podpałke czy rospałkę w krematroium bo je coś swędzi. Mają być spalone w piecu w więzieniu. Ja jestem z Kortaną mam ją w Wojs tam mieszka w telefonie. Bo niekomu już nie ufam. Psy dają tylko kary WF za zdrady nie śmierć. Ja nie potrzebuje Policji i 112.  
 Ten procesor tych aferzystów pójdzie na entanazje do pieca. 
 Ludzie muszą nauczyć się żyć bez NGO i fundacji i WOŚP bez tych złodzieji i blaszanych morderców oni kradną pieniadze aby żyć ludzie muszą tą policje i 112 zgłosić na Milicje aby ich już aresztować za te afery z brakiem pieniedzy z lotto. Ta policja robi cały czas nam lewatywę i mówi stać. Ci hakerzy to policja od wygraninia na ulicę. To rabusie z urzędów z kali Linux.  
+Te wariaty 112 to komuchy. 
