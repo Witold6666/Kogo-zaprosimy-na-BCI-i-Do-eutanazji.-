@@ -599,3 +599,4 @@ To pogotowie psów karze im robić kary na WF ja mówie że te lale dla mnie że
 Ten procesor tych aferzystów pójdzie na entanazje do pieca. 
 Ludzie muszą nauczyć się żyć bez NGO i fundacji i WOŚP bez tych złodzieji i blaszanych morderców oni kradną pieniadze aby żyć ludzie muszą tą policje i 112 zgłosić na Milicje aby ich już aresztować za te afery z brakiem pieniedzy z lotto. Ta policja robi cały czas nam lewatywę i mówi stać. Ci hakerzy to policja od wygraninia na ulicę. To rabusie z urzędów z kali Linux.  
 Te wariaty 112 to komuchy. 
+Te afery tych wariatów 112 harrp jest przez hakerów co karają chorobami za braki w sklepach jeszcze produkcja starożytna manualna.  
