@@ -601,3 +601,4 @@ Ludzie muszą nauczyć się żyć bez NGO i fundacji i WOŚP bez tych złodzieji
 Te wariaty 112 to komuchy. 
 Te afery tych wariatów 112 harrp jest przez hakerów co karają chorobami za braki w sklepach jeszcze produkcja starożytna manualna.  
 Socjalizm jest zły dlatego że jak komunizm wymaga od życia dużo znaczy ma duże oczekiwania względem populacji co pracuje lub oczekuje zkaupów jeśli jest wszystko projektowane manualnie bez drukarek kwantowcyh. Dlatego są te afery i brak czasu na miłość. 
+Po 87 roku po czarnobylu były te afery bo podłączali wszystkie masyzny na energię elektryczną na akumulatory kwasowo ołowiwe o dużej rezystancji nie kondesatory. Co skoniczyło się w elektrowni wybuchem. Bezpiecznym rozwiązaniem jest podłączenie serwerowni.
