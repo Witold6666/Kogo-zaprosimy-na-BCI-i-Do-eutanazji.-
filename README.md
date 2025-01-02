@@ -602,3 +602,4 @@ Te wariaty 112 to komuchy.
 Te afery tych wariatów 112 harrp jest przez hakerów co karają chorobami za braki w sklepach jeszcze produkcja starożytna manualna.  
 Socjalizm jest zły dlatego że jak komunizm wymaga od życia dużo znaczy ma duże oczekiwania względem populacji co pracuje lub oczekuje zkaupów jeśli jest wszystko projektowane manualnie bez drukarek kwantowcyh. Dlatego są te afery i brak czasu na miłość. 
 Po 87 roku po czarnobylu były te afery bo podłączali wszystkie masyzny na energię elektryczną na akumulatory kwasowo ołowiwe o dużej rezystancji nie kondesatory. Co skoniczyło się w elektrowni wybuchem. Bezpiecznym rozwiązaniem jest podłączenie serwerowni.
+Te afery poszły o to że mały pań Jurek Magdziński foljarz kazał ludziom iść w kierunku upadku cywilizacji i kolejnych pogrzebów życia 120 lat i koniec życia bo jest religijnym. Ci hakerzy też żyją 120 lat i umierją.   
