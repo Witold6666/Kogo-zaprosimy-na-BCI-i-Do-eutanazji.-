@@ -630,3 +630,5 @@ Te złe wybory to chłopi i swatki oni dobierają tak aby było nieszczeście. N
 Co do tego że nie mam miłości to Eliez Cassan czy z pośródu wybranych z opisu to firmy mi zabrły ich intelekt do pracy w fabryce na produkcji na taśmę to ta cudowana 112 Policja i wojsko i Watykan z cerffur zabrali mi miłość dlatego jestem sam. A oni dobierają jej nowego partnera z pośród idiotów jacy są w firmie. Dlatego Post Odyn, Iron Men God jest sam.
 Dlatego kupiłem procesor który można wyjąć. Już pisałem o aferach lekarzy że karzą się leczyć lekami od psychiatrów i innych znawców cebuli czy chłopów jak bez NeuroTechu zrobić np.: oliwe do obiadu czy do auta. Oni to ten zły procesor. Teraz ona będzie sama bez właściwej miłości. To wszystko przez profil lewy w elitach rządzących przez lewice i komunizm tych polityków czerwieni.     
 Te niewłaściwe dobory partnerów to Izrael oni to chwała na wysokości horyzontu zdarzeń. 
+To  że ludzie są nieszczęśliwi to wybory izraela i 112. 
+A NeuroTech EEG BCI ma to zmienić robie go dla tego że mam dość izraela i ich chłopskiego podejścia że oni tylko wymyślają oszczedzacze. A co do miłości to jej nie odzyskam. 
