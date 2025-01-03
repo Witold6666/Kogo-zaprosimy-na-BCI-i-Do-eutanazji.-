@@ -635,3 +635,4 @@ A NeuroTech EEG BCI ma to zmienić robie go dla tego że mam dość izraela i ic
 Izrael to same złe wybory jak wynory koniców gier Deus Ex same złe wybory brak ucieczki oni to oszczędzacze zmaberg braun to są ludzie od terapi bhbioralnej. 
 Oni to maszyny oszczędzacze oszczędności zamberga brauna ABDOCHA cebula.  
 Mój NeuroTech to alternatywna droga bez polityków i polityki 3 graczy czy 4 drogi samobujstwa są różne inne drogi alternatywne bez 112 i Policji inne sklepy bez słowa stropolskie staro śweickie czy staro żydowskie bez nordmarskiej starki. Bez psa. Bez jezusa.    
+Przez politykę Knestu jestem sam. To wszystko. Co do NeuroTechu EEG BCI to takie kobiety można wygenerować BCI NeuroTechem na zmaówienie jakie się chce zasilane Akula TPU. A ci od oszczędzaczy co się wydzierają na ambonie to durnie od prostowników. Tyle wyjaśnień o Neuro Tech i o tym czemu jestem sam któraś z wymienionych była moja. 
