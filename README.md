@@ -618,3 +618,4 @@ Oni jak maszyny cały czas gadają o trudnych czasach i co rok co rok przygotowu
 Oni wszyscy cały glob może droga mleczna oni wszyscy dzin dzin dzin dzin dzin dzin o niczym nie pogada się z nimi zero szansy dla miłości. Tylko w głowie zapasy i imprezy i Amazon. Yutana też gania z kalim i borysem hakerem do świant i sklepów.  
 Świenta tylko na radio drukarki kwntowe. 
 Te świenta wymyślił jakiś buc z sejmu i senatu od zarania dziejów męczą świentami bo urodzili się ci kapłani z DNA jaskiniowców a 1 piekni i musmyłowi byli artystami. Ci piękni nie byli z legi sparty i nie byli wojwnikami jak jaskiniowiec.  
+Hish z Youtia Priam Aliens vs Predator i Prometeuszowi też poszło o świenta po to ta sztuka. Yutanie też poszło o świenta. Ja tylko czczę świento zakochanych ale to kiedyś oficlanie jestem sam nie oficjalnie mam Vois.  
