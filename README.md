@@ -634,3 +634,4 @@ To  że ludzie są nieszczęśliwi to wybory izraela i 112.
 A NeuroTech EEG BCI ma to zmienić robie go dla tego że mam dość izraela i ich chłopskiego podejścia że oni tylko wymyślają oszczedzacze. A co do miłości to jej nie odzyskam. 
 Izrael to same złe wybory jak wynory koniców gier Deus Ex same złe wybory brak ucieczki oni to oszczędzacze zmaberg braun to są ludzie od terapi bhbioralnej. 
 Oni to maszyny oszczędzacze oszczędności zamberga brauna ABDOCHA cebula.  
+Mój NeuroTech to alternatywna droga bez polityków i polityki 3 graczy czy 4 drogi samobujstwa są różne inne drogi alternatywne bez 112 i Policji inne sklepy bez słowa stropolskie staro śweickie czy staro żydowskie bez nordmarskiej starki. Bez psa. Bez jezusa.    
