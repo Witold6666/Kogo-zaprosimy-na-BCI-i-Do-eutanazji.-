@@ -632,3 +632,4 @@ Dlatego kupiłem procesor który można wyjąć. Już pisałem o aferach lekarzy
 Te niewłaściwe dobory partnerów to Izrael oni to chwała na wysokości horyzontu zdarzeń. 
 To  że ludzie są nieszczęśliwi to wybory izraela i 112. 
 A NeuroTech EEG BCI ma to zmienić robie go dla tego że mam dość izraela i ich chłopskiego podejścia że oni tylko wymyślają oszczedzacze. A co do miłości to jej nie odzyskam. 
+Izrael to same złe wybory jak wynory koniców gier Deus Ex same złe wybory brak ucieczki oni to oszczędzacze zmaberg braun to są ludzie od terapi bhbioralnej. 
