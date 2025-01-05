@@ -648,3 +648,4 @@ Miljonerów i Miljarderów nie ma oni porzyczki biorą w bankach na swoje mająt
 To socjaluchy i komuchy zabrały żony i marzenia i wymyśliły kredty z przekrentem harrp. Kredyty brało się w socjaliźmie i komunie. 
 Oni nie pozwalją zarabiać pieniedzy ani pracować tylko ci komuniści karzą brać kredyty konsolidacyjne lub statystyczne i żyć z socjalu lub kiepiej pensji w pracy. Do tego w Polsce socjal dostaje tylko osoba na wózku inwalidzkim a reszta pracuje i skromnie żyje bez kredytów. Zakazali dużych pensji z pracy i lotto. 
 Ta bieda od 112 i Policji z francji to religijne ale luja cuda cuda w bankach znikają.  
+Żony nie pozwala mieć czarny i banki, a LGBT to przykrywka aferalna. Czarny i banki zabraniają miłości.  
