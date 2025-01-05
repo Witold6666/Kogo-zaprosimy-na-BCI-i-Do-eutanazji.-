@@ -655,3 +655,4 @@ Za poprzedniego stworzenia świata tak nie było mapy były legalne ze wszystkim
 Banki blokują dostęp do finansów na rózne sposoby.  
 Dla mnie serwery anonimisujące to patologia społeczna i torche te Voisy i Jolki na częsci do miłości przez te służby to też trochę patologia społeczna. 
 Te służby specjalne to maszyny i ta tajemnica służbowa tetaru komunistycznego pt psy z ukrainy. Jeden wielki skandal przez te sieci anonimizacji TOR. Więcej nie powiem to co robi ta Policja i 112 to chamstwo w biały dzień Grupy Kali Linux jakiś debili na nobla socjalicji harrp od anonimizacji sieci. To jest niewolnictwo do tego niewolnictwo finansowe.      
+Dla mnie netykieta i etyka i serwery i rutery Tor do anominizacji to niepełnosprawny jak całe cyber sicirity ABW CBA i CBŚ 112 Polcja i Wojsko i Watykan.  
