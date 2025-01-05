@@ -647,3 +647,4 @@ Ja tylko 1 powiem te tępe pały z 112 z tych banków ci policjanci chcą dawać
 Miljonerów i Miljarderów nie ma oni porzyczki biorą w bankach na swoje majątki. Bandyci to są banki i k francji policja z francji to oni karzą brać kredyty i zmywać naczyania na zmywaku w barach i restaurajach. Majątki biorą się z kredytów nie z tego że się zarobiło pieniądze na etacie przy pensji 1000 zł na miesiąc. 
 To socjaluchy i komuchy zabrały żony i marzenia i wymyśliły kredty z przekrentem harrp. Kredyty brało się w socjaliźmie i komunie. 
 Oni nie pozwalją zarabiać pieniedzy ani pracować tylko ci komuniści karzą brać kredyty konsolidacyjne lub statystyczne i żyć z socjalu lub kiepiej pensji w pracy. Do tego w Polsce socjal dostaje tylko osoba na wózku inwalidzkim a reszta pracuje i skromnie żyje bez kredytów. Zakazali dużych pensji z pracy i lotto. 
+Ta bieda od 112 i Policji z francji to religijne ale luja cuda cuda w bankach znikają.  
