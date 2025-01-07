@@ -664,3 +664,4 @@ Proszę przekazać Jurkowi Madzińskiemu z Deus Ex Invisibli War i francuzą że
 To co sprzedaje amazon, allegro, temu i inne sklepy to kosztuje i nie może być w promocji za darmo jak chcą komuchy. Gdzieś mam konsorcjum komunistów i ich sole do zamiany płci. 
 Jak Jurek Magdziński z Deus Ex Invisibli War się nie upsokoi z Mikołajem z Rovaniemi będą bezdomni ja tak mówię właściele kosmosów i ziemi Iron Men God i Post Odyn. Za darmo to pod katedrę Jureczka. 
 Ja będę drukować kasę czy komuś się to podoba czy nie. A Jurek i ludzie mają zakaz za darmo i zakaz świant i mają odać parom żonę i męża za afery z rozodami harrp. Nie będzie tu za darmo na lewo czy wasze sole do zmiany płci. Gdzieś mam izraelski prcesor chanuki i cyganów. Za kasę lub za kasę z drukarki kewantowej. Za darmo to w mordę. 
+Nie interesują mnie świenta oszczędzacze prostowniki i blacha. Zzmarnowaliście swoje szansy nie będę niszczył real me. 
