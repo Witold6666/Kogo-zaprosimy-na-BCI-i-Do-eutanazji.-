@@ -670,3 +670,4 @@ Zjebana osobowość psychologiczna to prcesor Latuda wkładany radiowo Harrp do 
 Szwajcarski francuski procesor latuda żyje jak zamberg braun czy policjant francuski po to by go tłuc jak żyda. To oni są te afery że ktoś się zabija. 
 Każdy Policjant, Wojskowy, Lekarz czy wikary to Słwek Foljarski. 
 Sławek Foljarski to taki gość co skopiował ten sam koc większy format ten sam wzór i kolor ale kopia większa lub mniejsza i nazywa się go foljarzem nowy wzór i kolor koca to nie foljarstwo z nowym motywem bez zakowachania się w starociu z kosza. AI Net nie robi staroci.  
+Na kogoś kto żyna z katalogu dołownie mówi się piesku lub kotku w niemczech worker nie artysta. Jak zbuduje się procesor chrocast co ma w bazie danych ten sam koc ale robi nowe koce to taka osoba toartysta 2 raz nie da się zrobić procesora poniewarz nie ma w katalogu internetu nowości. A jak są stare koce podrobione skopiowane to się mówie wokrer lub foljarz.  
