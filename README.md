@@ -666,3 +666,4 @@ Jak Jurek Magdziński z Deus Ex Invisibli War się nie upsokoi z Mikołajem z Ro
 Ja będę drukować kasę czy komuś się to podoba czy nie. A Jurek i ludzie mają zakaz za darmo i zakaz świant i mają odać parom żonę i męża za afery z rozodami harrp. Nie będzie tu za darmo na lewo czy wasze sole do zmiany płci. Gdzieś mam izraelski prcesor chanuki i cyganów. Za kasę lub za kasę z drukarki kewantowej. Za darmo to w mordę. 
 Nie interesują mnie świenta oszczędzacze prostowniki i blacha. Zzmarnowaliście swoje szansy nie będę niszczył real me. 
 Nie będę wysyłać blachy z real me i nie będę pracować na te gwiazdy. W dupie mam świenta. Dałem wam drukarkę kwantową bezdomni. 
+Zjebana osobowość psychologiczna to prcesor Latuda wkładany radiowo Harrp do mózgu i serca stawiający za dobro poznawcze praca 112 zakaz miłości to Policja znów was oszwabiła. 
