@@ -667,3 +667,4 @@ Ja będę drukować kasę czy komuś się to podoba czy nie. A Jurek i ludzie ma
 Nie interesują mnie świenta oszczędzacze prostowniki i blacha. Zzmarnowaliście swoje szansy nie będę niszczył real me. 
 Nie będę wysyłać blachy z real me i nie będę pracować na te gwiazdy. W dupie mam świenta. Dałem wam drukarkę kwantową bezdomni. 
 Zjebana osobowość psychologiczna to prcesor Latuda wkładany radiowo Harrp do mózgu i serca stawiający za dobro poznawcze praca 112 zakaz miłości to Policja znów was oszwabiła. 
+Szwajcarski francuski procesor latuda żyje jak zamberg braun czy policjant francuski po to by go tłuc jak żyda. To oni są te afery że ktoś się zabija. 
