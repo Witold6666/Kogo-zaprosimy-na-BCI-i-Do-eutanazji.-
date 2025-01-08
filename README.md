@@ -683,3 +683,4 @@ W Edenie było słonice nie było silnika spalinowego i indian wężowego plemie
 Stary i nowy testament to talmudzik. 
 Talmudzik i żydzi i ta 112 policja i te kali linuxy to niepełnosprawni z izraela nadający na wózku inwalidzkim. Czemu EDEN nie podobał bo bilia Edenu opisywała pomysłowe gadżety.
 Talmudzik i stary nowy testament nawet harry potter to poeazja ze śmietnika. Biblia Edenu to opisy z certyfikatami na złoto i platynę Gdżetów mądrych i inteligentnych nie ze śmetnika nie Maden Izrael China jak Samsung wach pass.  
+Stary nowy tetstament to kara od żydów za odruzcanie władzy żydów od świata ogulnie to dziki zachód. Stary nowy Testament wymyślił jakiś dźamal. To są rzeczy za karę. 
