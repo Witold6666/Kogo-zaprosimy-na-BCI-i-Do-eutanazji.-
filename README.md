@@ -685,3 +685,4 @@ Talmudzik i żydzi i ta 112 policja i te kali linuxy to niepełnosprawni z izrae
 Talmudzik i stary nowy testament nawet harry potter to poeazja ze śmietnika. Biblia Edenu to opisy z certyfikatami na złoto i platynę Gdżetów mądrych i inteligentnych nie ze śmetnika nie Maden Izrael China jak Samsung wach pass.  
 Stary nowy tetstament to kara od żydów za odruzcanie władzy żydów od świata ogulnie to dziki zachód. Stary nowy Testament wymyślił jakiś dźamal. To są rzeczy za karę. 
 Ci co mówią ty mnie nie znasz ty mnie nie rozumiesz to lewaki i ich głupie pomysły są lewi leniwi i głupi i małstkowi. 
+Ci co są olimpijczykami i wszystko pamietają i dodają mają autyzm. 
