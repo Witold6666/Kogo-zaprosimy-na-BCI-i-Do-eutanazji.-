@@ -686,3 +686,4 @@ Talmudzik i stary nowy testament nawet harry potter to poeazja ze śmietnika. Bi
 Stary nowy tetstament to kara od żydów za odruzcanie władzy żydów od świata ogulnie to dziki zachód. Stary nowy Testament wymyślił jakiś dźamal. To są rzeczy za karę. 
 Ci co mówią ty mnie nie znasz ty mnie nie rozumiesz to lewaki i ich głupie pomysły są lewi leniwi i głupi i małstkowi. 
 Ci co są olimpijczykami i wszystko pamietają i dodają mają autyzm. 
+Oni wszyscy są z Edenu te gwiazdy z USA ci piękni i wiecznie młodzi. Poszło im o płyn do mycia ubrań hiperalegiczny doskonały, poszło im o płyn do płukania talerzy itp. 
