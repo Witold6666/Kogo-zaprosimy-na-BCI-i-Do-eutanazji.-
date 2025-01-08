@@ -689,3 +689,4 @@ Ci co są olimpijczykami i wszystko pamietają i dodają mają autyzm.
 Oni wszyscy są z Edenu te gwiazdy z USA ci piękni i wiecznie młodzi. Poszło im o płyn do mycia ubrań hiperalegiczny doskonały, poszło im o płyn do płukania talerzy itp. 
 Ci ludzie rozwiedli się i umarli na raka przez afery Cerrffur bo nie pracowali. Ci złodzieje i blaszani morcdercy to francuzi i szwajcarzy są ze sklepu.  
 To Koran i Talmud i Szwjcaria i Frnacja 112 wycofali się z liczenia pieniedzy karzą robić za darmo na rzecz biedy w komunizmie. Oni to Maszyny NGO.  
+Fundacje NGO i ich nie sklepy tylko fora NGO bo komuny inaczej sklepy nazywają się fora NGO od słowa fundacji nie dają zakupów pytają do czego potrzebne i rządzi nimi 112. Dlatego są źli i nazywa się ich czerwone.  
