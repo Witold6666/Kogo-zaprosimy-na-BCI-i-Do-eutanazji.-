@@ -687,3 +687,4 @@ Stary nowy tetstament to kara od żydów za odruzcanie władzy żydów od świat
 Ci co mówią ty mnie nie znasz ty mnie nie rozumiesz to lewaki i ich głupie pomysły są lewi leniwi i głupi i małstkowi. 
 Ci co są olimpijczykami i wszystko pamietają i dodają mają autyzm. 
 Oni wszyscy są z Edenu te gwiazdy z USA ci piękni i wiecznie młodzi. Poszło im o płyn do mycia ubrań hiperalegiczny doskonały, poszło im o płyn do płukania talerzy itp. 
+Ci ludzie rozwiedli się i umarli na raka przez afery Cerrffur bo nie pracowali. Ci złodzieje i blaszani morcdercy to francuzi i szwajcarzy są ze sklepu.  
