@@ -678,3 +678,5 @@ Oni to te łyse pały skinhedzi z Irzaela 112 policja postwyisiłek.
 Izrael karze i ma fioła i świra to są świry manulaizacji są w tym procesorem. Dla mnie Izrael to Chamsony, Izrael to 20 lat temu na szydełku.   
 Im wszystkim całem izraelowi i legi sparcie nalerzy się renta i grupa niepełnosprawności za te wojny i zostań pies czy kot szyj jak worker po co free lancer. 
 Gdzieś mam legie sparte i budowanie armi że Taulach Ryli znowu będzie w ciąży i gazteka się dowie o tym. Ja chce żyć jak w edenie nie żona na 50 30 lat razem tylko na wieczność bez dzieci.  
+Żydzi wyewoluowali z niesporczaków i ksenomorfów jak Yutana. 
+W Edenie było słonice nie było silnika spalinowego i indian wężowego plemienia żydowskiego co deszcz cały czas ze siniegiem wywowlływali harrp. Nie było rolników od pada żyd. 
