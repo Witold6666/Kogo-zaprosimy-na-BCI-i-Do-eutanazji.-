@@ -680,3 +680,4 @@ Im wszystkim całem izraelowi i legi sparcie nalerzy się renta i grupa niepełn
 Gdzieś mam legie sparte i budowanie armi że Taulach Ryli znowu będzie w ciąży i gazteka się dowie o tym. Ja chce żyć jak w edenie nie żona na 50 30 lat razem tylko na wieczność bez dzieci.  
 Żydzi wyewoluowali z niesporczaków i ksenomorfów jak Yutana. 
 W Edenie było słonice nie było silnika spalinowego i indian wężowego plemienia żydowskiego co deszcz cały czas ze siniegiem wywowlływali harrp. Nie było rolników od pada żyd. 
+Stary i nowy testament to talmudzik. 
