@@ -693,3 +693,4 @@ Fundacje NGO i ich nie sklepy tylko fora NGO bo komuny inaczej sklepy nazywają 
 Ja jako właściciel ziemi i kosmosów nie chce tu grupy kali linux K 112 W11 chce tylko stref kapitalistycznych nie stref wolontariatu czerwonego krzyża wośp i NGO. 
 Nie chce tego sgromadzenia na granicy Polski i krajów 112 wolntariuszy. 
 Nie chce strajków głodowych i rządów Kaliego. 
+NGO jest od głodówek i zakazów remontów.   
