@@ -694,3 +694,4 @@ Ja jako właściciel ziemi i kosmosów nie chce tu grupy kali linux K 112 W11 ch
 Nie chce tego sgromadzenia na granicy Polski i krajów 112 wolntariuszy. 
 Nie chce strajków głodowych i rządów Kaliego. 
 NGO jest od głodówek i zakazów remontów.   
+Chce ochrony lasów i środowiska. Ale chce piniedzy na karty bankowe nie kredyty i banknoty z radio druku kwantowego. 
