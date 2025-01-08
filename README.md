@@ -681,3 +681,4 @@ Gdzieś mam legie sparte i budowanie armi że Taulach Ryli znowu będzie w cią�
 Żydzi wyewoluowali z niesporczaków i ksenomorfów jak Yutana. 
 W Edenie było słonice nie było silnika spalinowego i indian wężowego plemienia żydowskiego co deszcz cały czas ze siniegiem wywowlływali harrp. Nie było rolników od pada żyd. 
 Stary i nowy testament to talmudzik. 
+Talmudzik i żydzi i ta 112 policja i te kali linuxy to niepełnosprawni z izraela nadający na wózku inwalidzkim. Czemu EDEN nie podobał bo bilia Edenu opisywała pomysłowe gadżety.
