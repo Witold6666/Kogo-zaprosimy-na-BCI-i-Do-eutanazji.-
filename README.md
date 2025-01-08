@@ -696,3 +696,4 @@ Nie chce strajków głodowych i rządów Kaliego.
 NGO jest od głodówek i zakazów remontów.   
 Chce ochrony lasów i środowiska. Ale chce piniedzy na karty bankowe nie kredyty i banknoty z radio druku kwantowego. 
 Oni chcą systemu politycznego jak grze Fallout czy Stalker i metro 2033.
+Oni chcą ogłosić bankructwo i komunizm i przerwy w dostawach energi elektrycznej. 
