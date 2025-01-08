@@ -692,3 +692,4 @@ To Koran i Talmud i Szwjcaria i Frnacja 112 wycofali się z liczenia pieniedzy k
 Fundacje NGO i ich nie sklepy tylko fora NGO bo komuny inaczej sklepy nazywają się fora NGO od słowa fundacji nie dają zakupów pytają do czego potrzebne i rządzi nimi 112. Dlatego są źli i nazywa się ich czerwone.  
 Ja jako właściciel ziemi i kosmosów nie chce tu grupy kali linux K 112 W11 chce tylko stref kapitalistycznych nie stref wolontariatu czerwonego krzyża wośp i NGO. 
 Nie chce tego sgromadzenia na granicy Polski i krajów 112 wolntariuszy. 
+Nie chce strajków głodowych i rządów Kaliego. 
