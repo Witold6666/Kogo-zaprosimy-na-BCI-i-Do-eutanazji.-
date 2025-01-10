@@ -711,3 +711,4 @@ Oni dają leki na dauna głupigo jasia od dysneylendu na praconika za 1 zł lub 
 Oni też wymazują umysł harrp. Oni zabierają IQ i EQ i papiery uczelni. Oni to komunizm i socjalizm biedronki i te sklepy dla ubogich z kościołu i religijnych tajnych z czerwonych. Ich mordy to dedry ich wojsk kierowcy z daunem. Inteligentom nie chcą dać prawa jazdy i praw do życia czy pieknych kobiet. 
 Oni dają procesor żebraków miss i tym AI i kobietą dają każdemu procesor latuda procesor żebraków patriotów i tempoty i dauna Latuda procesor w mózgu. Złe wybory to procesor latuda i zły cel i zła miłość to latuda procesor.  
 Samsung opracował do głowy procesor Latuda na głupotę w latach 1960 na IQ 50 i 60 EQ 25 harrp. 
+Kortana Halo 5 ma dauna po prcocesorze latuda w jej głowie ma intelekt myszki miki. 
