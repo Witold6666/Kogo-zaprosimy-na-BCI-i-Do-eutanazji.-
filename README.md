@@ -728,3 +728,4 @@ O co mi poszło zamordowali kobiety człowiek rozum. Łabędzie miss są to Lucy
 Oni na radio straszą przegłosami i głosami w głowie na EEG chcą skruchy i akceptowania religi i topienia marzanny. Oni w tej histori kłucili się o te bzdury z katalogu AI Net drukarki kwantowej. Oni to niepełnosprawni od sportu. Oni to prości rolnicy. Po staremu a choj na łajbie mojej. 
 Ci chłopi udają nie wiedzą o co chodzi udają. Te kobiety gineły z ich ręki zalerzy im tylko na utrzymaniu sklepów. 
 Ci chłopi mają w dupie miłość 2 ludzi karzą harrp alimentami i ekologią. Karzą segergować śmieci trują sklepami i promocjami nie dają żyć wszystkich biorą bez wyjądku na pogotowie 112 do pracy i dają co sezon nowe obowiązki i świnta oni to śmieci. Kali i jego rodzina to śmieci. 
+Nie ma czasu na miłość wieczorem tylko praca śmieci segergacja na mycie i jedzenie też nie ma czasu. Powina być robotyka.
