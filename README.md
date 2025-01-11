@@ -720,3 +720,4 @@ Te bezdomne miss czy utopione odane na organy zgineły w pożażarze harrp że �
 Rodzinie kaliemu i oliwi kali linux kali back trakowi i borysowi i tym krają trzeba dać w zęby za afery że zabiją miss świata i AI głośniki z miss i żyją łobuzy i dziady i chłopi. Grześkowi Buczykowi też trzeba dać w zęby panu fotografowi. Całej tej ferajnie CFR.  
 Żydzi mówią że są z USA czy Polski czy innego kraju a są z Izraela jak Egipcjanie te świnie i murzyny. Oni mają nakazy mordów tych kobiet. Żydzi to wszyscy Politycy i te CEO dyrekcja na świecie. 
 Kali to procesor wszystkie grzechy zna Kali to ci co mówią ukrzyżować go powiesić go to nikczemnik obraża Jezusa nie daje mu dupy i nie jest w chabicie. To są te voisy zjeby.  
+Kali mówi jako morderca tych kobiet nie ma żony nie ma żony będzie bezdomny a sam je harrp zabił i dał baby. Tyle o tym czerwonym. 
