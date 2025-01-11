@@ -714,3 +714,4 @@ Samsung opracował do głowy procesor Latuda na głupotę w latach 1960 na IQ 50
 Kortana Halo 5 ma dauna po prcocesorze latuda w jej głowie ma intelekt myszki miki. 
 Te książki co dałem o histori to wyczyny tych do systemu, krajów i klaiego i gierka afery kredytowe i wojny i narkotyki patrioci idioci chłopcy ze szbalką. Obiecują żony za pójcie na wojnę czy do pracy do restauracji na zmywak i obniżenie IQ a jak nie mordują zegarki i jakieś żony zegarki ta mafia. Ja się nie boję nawet jak kali obetnie jej nogi.   
 Całe te afery firmy i mafia wojny są od starożytności kali nimi rządzi tymi co robią wojny. Książki są moje napisane w kodzie czyta się między wierszami. Oni to oszczędzacze i zamieniki życia bycie frajerem.   
+Kali to chrześcijański NGO religijny zwyczaj topienia lali marzany np.: Miss świata dają na organy lub topią jak marzanę bo zabili jezusa dziada.   
