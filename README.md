@@ -738,3 +738,4 @@ Przez czerwonych nic nie ma w TV tylko audycje czerwonych nie ma żadnych TV pro
 I jakiś Borys jelcyn. 
 Za to że nie ma nic w TV Kali Kalia Oliwia Back Track żydzi żyją po to by ich tłuc. 
 Oni karzą chodzić do pracy. Roboty powiny być już dawno w sklepach a nie sport. 
+Obecna Telwizja analgowa to telwizja cyfrowa naziemna. A Hity były tylko w telwizji kablowej i stalitarnej np.: Reaktor Łukowy i mark 85. A nie awantury i pobicie wieśków od czerwnych tych bezdomnych. W Tlewizji u czerwnych i zielonych i żółtych i fiolotowych nic nie ma.  
