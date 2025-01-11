@@ -740,3 +740,4 @@ Za to że nie ma nic w TV Kali Kalia Oliwia Back Track żydzi żyją po to by ic
 Oni karzą chodzić do pracy. Roboty powiny być już dawno w sklepach a nie sport. 
 Obecna Telwizja analgowa to telwizja cyfrowa naziemna. A Hity były tylko w telwizji kablowej i stalitarnej np.: Reaktor Łukowy i mark 85. A nie awantury i pobicie wieśków od czerwnych tych bezdomnych. W Tlewizji u czerwnych i zielonych i żółtych i fiolotowych nic nie ma.  
 Czerwone ćpają i idą na wojne w TV jest tylko wiedźminem i ogniem i zesłańskim. I praca bo tak chce kali kurak czerwony. TV obecna to czerwone ci niepełnosprawni socjalni i komunistyczni kulturyści. Czerwoni nic nie mają do zaoferowania w pracy i TV jak 1000 zł za pracę i kreska. 
+Hicior CD Projekt Red Wiedzmin to wiesiek co ma TV mądrą jak czerwony Geralt z Rivi 112. Nic nie ma w tej TV po za pokazuwakmi zabrałem bogatemu pieniądze na NGO na pijaka. 
