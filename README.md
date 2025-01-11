@@ -726,3 +726,4 @@ Ci bezdomni to oszczędzacze. Ci bezdomni z grupy kali linux zabijali miss świa
 Kali ten obszczymur chwali i zwchwala wieśniaczki i chłopki. Kali nie jest procesor tylko obszczymur bandziorek. Wszystkie piekne mordowali cała historia świata to mordy pięknych kobiet przez chłopów i jaskiniowców i izrael przemków hakerów w słomianych kapelutkach. To są wieśniacy chłopi idici betonowe pały. 
 O co mi poszło zamordowali kobiety człowiek rozum. Łabędzie miss są to Lucy Stilman i Psy yutany. Zwierzeta mordują człowieka. 
 Oni na radio straszą przegłosami i głosami w głowie na EEG chcą skruchy i akceptowania religi i topienia marzanny. Oni w tej histori kłucili się o te bzdury z katalogu AI Net drukarki kwantowej. Oni to niepełnosprawni od sportu. Oni to prości rolnicy. Po staremu a choj na łajbie mojej. 
+Ci chłopi udają nie wiedzą o co chodzi udają. Te kobiety gineły z ich ręki zalerzy im tylko na utrzymaniu sklepów. 
