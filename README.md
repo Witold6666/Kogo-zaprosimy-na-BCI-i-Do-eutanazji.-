@@ -737,3 +737,4 @@ Te systemy prawne 4 systemy prawne różne kolory i inne systemy to czerwone i s
 Przez czerwonych nic nie ma w TV tylko audycje czerwonych nie ma żadnych TV programów tylko smenty czerwonych mordy i zabujstwa lub komedio dramaty nie miłość. I pasztaty w TV. 
 I jakiś Borys jelcyn. 
 Za to że nie ma nic w TV Kali Kalia Oliwia Back Track żydzi żyją po to by ich tłuc. 
+Oni karzą chodzić do pracy. Roboty powiny być już dawno w sklepach a nie sport. 
