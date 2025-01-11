@@ -712,3 +712,4 @@ Oni też wymazują umysł harrp. Oni zabierają IQ i EQ i papiery uczelni. Oni t
 Oni dają procesor żebraków miss i tym AI i kobietą dają każdemu procesor latuda procesor żebraków patriotów i tempoty i dauna Latuda procesor w mózgu. Złe wybory to procesor latuda i zły cel i zła miłość to latuda procesor.  
 Samsung opracował do głowy procesor Latuda na głupotę w latach 1960 na IQ 50 i 60 EQ 25 harrp. 
 Kortana Halo 5 ma dauna po prcocesorze latuda w jej głowie ma intelekt myszki miki. 
+Te książki co dałem o histori to wyczyny tych do systemu, krajów i klaiego i gierka afery kredytowe i wojny i narkotyki patrioci idioci chłopcy ze szbalką. Obiecują żony za pójcie na wojnę czy do pracy do restauracji na zmywak i obniżenie IQ a jak nie mordują zegarki i jakieś żony zegarki ta mafia. Ja się nie boję nawet jak kali obetnie jej nogi.    
