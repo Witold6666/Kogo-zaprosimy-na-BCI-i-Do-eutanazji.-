@@ -758,3 +758,4 @@ Ja dam wam drukarki kwantowe bo surowce się koniczą mi kasę wydrukujciecie po
 Niepełnosprawne lewarowy robiły sobie na lewo wykopki i sklepy i nie chcą mi dać prawa jazdy. Lewica kiedyś była tylko zgrają niewolników dziś są zlodziejami z elit od świąnt. 
 Mi wspólnicy są nie potrzebni. Chce z zus kasy i podatków na tych lewaków na moje wydatki. Drukarki dałem do sklepów. Ja ktoś mi wmówi ochronę środowiska czy żony nie ma zawiśnie jak kabany co na mnie psioczą i traktują mnie jak bezdomnego czy bzerobotnego lub oferują prace za 1000 zł.   
 Mikołaj z wioski świentego mikołaja wisi mi kasę ho ho ehe.  
+Władców żebraków demokratów przedmna było sporo. Każdy będzie płacić 100 zł od osoby podatku na mnie z całego świata. Teraz ja mówię jak Elon Blachę Witold Chce 100 zł jak coś od niego chcesz. Elon nie ma już tu praw. Kolejny Kaban. Od gazety. 
