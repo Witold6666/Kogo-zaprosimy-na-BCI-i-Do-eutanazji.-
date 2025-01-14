@@ -763,3 +763,4 @@ Kali procesor będzie bezdomny żył jak bezdomny. Nie chce prezentów od kalieg
 Ja niedługo wcyhodzę od lekarza z leczenia i stracę rentę. Jeśli Kali i świat myśli że mam iść jak wszyscy do pracy za 1000 zł to światu i kaliemu spadł stos kamieni na głowę. 
 Jak firmy nie będą mi płacić podatku na moje życie to cały proejkt wiosna lewy profil ogłosi upadłość firm. A Syndyk oda mi majątek. 
 Ludzie będą żyć powszechnie jak w rezerwacie przyrody. 
+Kali ten niepełnsoprawny chce dać mi zegarek z kobietą za surowce i ten projekt i prawa do kosmosów i ziemi a chce żebym zył jak bezdomny. To jest złodziej ten procesor. Niech go zyndyk rozliczy za to że lotto mi też nie chcą dać tylko jakieś gadżety ze złomu.  
