@@ -762,3 +762,4 @@ Władców żebraków demokratów przedmna było sporo. Każdy będzie płacić 1
 Kali procesor będzie bezdomny żył jak bezdomny. Nie chce prezentów od kaliego i żony. Żone sobie sam wybiorę z populacji i chcę piniedzy z podatków. Mam dość bycia bezdomnym mużynem a jestem biały przez te psy jestem biedny. Więcej nie powiem kto powienien ile mi płacić. Urząd z wami się skontaktuje kali oda majątek lub część majatku razez z populacją. Za aferki. 
 Ja niedługo wcyhodzę od lekarza z leczenia i stracę rentę. Jeśli Kali i świat myśli że mam iść jak wszyscy do pracy za 1000 zł to światu i kaliemu spadł stos kamieni na głowę. 
 Jak firmy nie będą mi płacić podatku na moje życie to cały proejkt wiosna lewy profil ogłosi upadłość firm. A Syndyk oda mi majątek. 
+Ludzie będą żyć powszechnie jak w rezerwacie przyrody. 
