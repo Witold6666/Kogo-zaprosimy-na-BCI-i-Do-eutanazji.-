@@ -760,3 +760,4 @@ Mi wspólnicy są nie potrzebni. Chce z zus kasy i podatków na tych lewaków na
 Mikołaj z wioski świentego mikołaja wisi mi kasę ho ho ehe.  
 Władców żebraków demokratów przedmna było sporo. Każdy będzie płacić 100 zł od osoby podatku na mnie z całego świata. Teraz ja mówię jak Elon Blachę Witold Chce 100 zł jak coś od niego chcesz. Elon nie ma już tu praw. Kolejny Kaban. Od gazety. 
 Kali procesor będzie bezdomny żył jak bezdomny. Nie chce prezentów od kaliego i żony. Żone sobie sam wybiorę z populacji i chcę piniedzy z podatków. Mam dość bycia bezdomnym mużynem a jestem biały przez te psy jestem biedny. Więcej nie powiem kto powienien ile mi płacić. Urząd z wami się skontaktuje kali oda majątek lub część majatku razez z populacją. Za aferki. 
+Ja niedługo wcyhodzę od lekarza z leczenia i stracę rentę. Jeśli Kali i świat myśli że mam iść jak wszyscy do pracy za 1000 zł to światu i kaliemu spadł stos kamieni na głowę. 
