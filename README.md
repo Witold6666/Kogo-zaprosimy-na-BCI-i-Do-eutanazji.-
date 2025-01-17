@@ -765,3 +765,4 @@ Jak firmy nie będą mi płacić podatku na moje życie to cały proejkt wiosna 
 Ludzie będą żyć powszechnie jak w rezerwacie przyrody. 
 Kali ten niepełnsoprawny chce dać mi zegarek z kobietą za surowce i ten projekt i prawa do kosmosów i ziemi a chce żebym zył jak bezdomny. To jest złodziej ten procesor. Niech go zyndyk rozliczy za to że lotto mi też nie chcą dać tylko jakieś gadżety ze złomu.  
 Z Tego co wiem wygrali w lotto jakieś sklepy 112 z hobbi np.: czy kupi pan węża czy złomy Biznesy wygrywają w lotto. Z tego co wiem my musimy pracować u nich. Bezos zabiera lotto ludziom i mówi że lotto to nie karitas i mówi zostań hakerem lub kup kali linux jak coś chcesz mieć. Lub kupuj do 300 zł gadżety. 
+Instalacja Harrp radio nalerzy do miljarderów i miljonerów. 
