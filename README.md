@@ -772,3 +772,4 @@ Pdobno Niemcy, Węgry, Szwjcaria, Izrael i Turcja to ta mafia co się stało wez
 Oni dają zegarki z kobietami lub rodzone kobiety czy oszczędzacze i sparita po stracie rodziny w mieście po depopulacji to ci aktorzy nie liczą się z nikim jak Yutana Yutani. To mordercy dlatego się mówi na nich aktorzy lub anioły. To takie przezwisko. Tak samo na diabła mówi się nie moerderca tylko diabeł lub aktor harrp czy rolnik lub haker.      
 Oni ci co kłucą się o te gadżety to za psa żyją i są zaściankowi i prości jak ci od świant. Oni to pismo kaczor donalda lub astynostenes dostępne w kiosku za 1.99 zł. 
 Oni na ten towar idą jak psy pawłowa. 
+Ci od szamba i jego jedzenia Prometeusz i Ci od odpadów Deus Ex i Grupa kali linux od linuxa hakerskiego to niepełnosprawni gadają jak niepełnosprawni zakaz sudoku bo są leniwi.
