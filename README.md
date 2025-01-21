@@ -773,3 +773,4 @@ Oni dają zegarki z kobietami lub rodzone kobiety czy oszczędzacze i sparita po
 Oni ci co kłucą się o te gadżety to za psa żyją i są zaściankowi i prości jak ci od świant. Oni to pismo kaczor donalda lub astynostenes dostępne w kiosku za 1.99 zł. 
 Oni na ten towar idą jak psy pawłowa. 
 Ci od szamba i jego jedzenia Prometeusz i Ci od odpadów Deus Ex i Grupa kali linux od linuxa hakerskiego to niepełnosprawni gadają jak niepełnosprawni zakaz sudoku bo są leniwi.
+W kążdym banku pracuje żyd i to on karze żyć za 1000 zł każdemu na ziemi a sam żyje ponad stan. Bo banki nie drukują pieniedzy elektrycznie tylko z papieru z lasu. Dlatego jest bieda przez nipeełnosprawne sknery żydowskie.  
