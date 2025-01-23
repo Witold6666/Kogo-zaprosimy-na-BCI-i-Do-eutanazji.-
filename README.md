@@ -789,3 +789,4 @@ Jak to poznać kobiety ryby chodza w Ponchu szmacie nie ma z nimi kontaktu. Co d
 Podobno Lancherto ma harrp i to oni zakazali grać w lotto karają chorobami na zlecenie kortany halo 5 Lancherto założyła Legia sparta i Jurek Magdziński z Deus Ex invisibli war kwiatki i bieda przezenty sterydy z kosmosu nanotech.  
 112 i Policja i wojskow z Watykanem to kwiatki i amisze od zakazu lotto. To jakaś bartysława zakazała lotto z bolesławami. 
 Kasyna na punkty nie za gotówkę a za darmo dla szpanu na punkty nie za gotówkę to cygany watykan ezio audiotore altair żydzi policja 112 watykan i wojsko trochę azja i minimaliści Lancherto czorty z sieci lan i Los Angeles Los Devilos.    
+Te cygany od minimalizmu te śmieci lancherto to religijne z koryta bo cierpienie uszlachetnia duszę człowieka primavera oni to kasztany od kolendy burak się rodzi burak mostuchleje buraku lujaj bo burakiem jesteś Buraki od jezusa.   
