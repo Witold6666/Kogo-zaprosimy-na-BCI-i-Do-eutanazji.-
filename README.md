@@ -787,3 +787,4 @@ Ci co zrobili Covid 19 i brak wygranych w lotto i te afery cerfur to Los Angeles
 Oni nie pozwalają żyć. Ci co nie są na portalach randkowych i mają blogi i są na fecbooku nie do wyszukania lub ukrywają konto to ryby są od hakingu 5 zł lotto w sklepie. 
 Jak to poznać kobiety ryby chodza w Ponchu szmacie nie ma z nimi kontaktu. Co do kobiet w Ponchu kocu to one noszą koc zwoltex Arosa gruby ale to żadkość one rozchodzą się jak ciepłe bulełeczki są uwarzane za atrakcyjne są na portalu randkowym. Ryby noszą szmaty i wiedzą coś o legi i sparcie. 
 Podobno Lancherto ma harrp i to oni zakazali grać w lotto karają chorobami na zlecenie kortany halo 5 Lancherto założyła Legia sparta i Jurek Magdziński z Deus Ex invisibli war kwiatki i bieda przezenty sterydy z kosmosu nanotech.  
+112 i Policja i wojskow z Watykanem to kwiatki i amisze od zakazu lotto. To jakaś bartysława zakazała lotto z bolesławami. 
