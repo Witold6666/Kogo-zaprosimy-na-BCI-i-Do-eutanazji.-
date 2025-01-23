@@ -793,3 +793,4 @@ Te cygany od minimalizmu te śmieci lancherto to religijne z koryta bo cierpieni
 Oni karzą odawać pieniadze na NGO i darmozjadów swoje dziecie harrpem traktują aby chorowały i otwieraja fundacje i NGO ci aktorzy głownie to Policjanci i Policjantki i watykan z Wojskiem ich mafia i portal to Lancherto Bratysława bolesławy. Dlatego przez nich nie można grać w lotto bo oni zakazali lotto. W dupie i w życi mają nas graczy. Wiejska 10 PRL Warszawa to te psy.  
 Sklepy i ci budntownicy co zakazali grać to arystorkacja roljaliści to są te śmieci te łachmyty ludzie dla nich to niewolnicy. Oni to NGO ochrona lasów zakazy druku kwantowego.
 Czekanie na majątek latami jak las urośnie. 
+Żydzi karzą na kasę czekać latami do emerytury. 
