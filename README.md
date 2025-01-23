@@ -791,3 +791,5 @@ Podobno Lancherto ma harrp i to oni zakazali grać w lotto karają chorobami na 
 Kasyna na punkty nie za gotówkę a za darmo dla szpanu na punkty nie za gotówkę to cygany watykan ezio audiotore altair żydzi policja 112 watykan i wojsko trochę azja i minimaliści Lancherto czorty z sieci lan i Los Angeles Los Devilos.    
 Te cygany od minimalizmu te śmieci lancherto to religijne z koryta bo cierpienie uszlachetnia duszę człowieka primavera oni to kasztany od kolendy burak się rodzi burak mostuchleje buraku lujaj bo burakiem jesteś Buraki od jezusa.   
 Oni karzą odawać pieniadze na NGO i darmozjadów swoje dziecie harrpem traktują aby chorowały i otwieraja fundacje i NGO ci aktorzy głownie to Policjanci i Policjantki i watykan z Wojskiem ich mafia i portal to Lancherto Bratysława bolesławy. Dlatego przez nich nie można grać w lotto bo oni zakazali lotto. W dupie i w życi mają nas graczy. Wiejska 10 PRL Warszawa to te psy.  
+Sklepy i ci budntownicy co zakazali grać to arystorkacja roljaliści to są te śmieci te łachmyty ludzie dla nich to niewolnicy. Oni to NGO ochrona lasów zakazy druku kwantowego.
+Czekanie na majątek latami jak las urośnie. 
