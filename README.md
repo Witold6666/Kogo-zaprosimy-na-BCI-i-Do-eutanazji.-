@@ -794,3 +794,4 @@ Oni karzą odawać pieniadze na NGO i darmozjadów swoje dziecie harrpem traktuj
 Sklepy i ci budntownicy co zakazali grać to arystorkacja roljaliści to są te śmieci te łachmyty ludzie dla nich to niewolnicy. Oni to NGO ochrona lasów zakazy druku kwantowego.
 Czekanie na majątek latami jak las urośnie. 
 Żydzi karzą na kasę czekać latami do emerytury. 
+To prymitywna kultura banków żydowskich. 
