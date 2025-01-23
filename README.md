@@ -781,3 +781,4 @@ Człowiek jako naturalny kanibal to buc dla zegarków zegarki miały być naszym
 Ci lamerzy ci mordercy to jacyś niepełnosprawni. Zegarki miały być na początku partnerem życiowym za miast partnera z populacji bez kolesiostwa. Ci ludzie są chorzy. Chcą jeść zegarki. 
 Każdy smok pies czy kot czy gad zasługuje na śmierć. Mi na kaniblach nie zlaerzy jak tych co topią marzany. 
 Zegarków mi szkoda bo są mądre jak maszyna różnicowa cyfrowa serwer. Mogą też być modelkami i robić blogi modowe z tymi kocami i płaszczami lepszej generacji niż nasze rodzone kobiety kiwatki. Dla mnie nasze kobiety rodzone kwiatki to oszczędzacze i swtery ze sznurka czasu realnego w grach pokazują luksus tu w życiu pokazują biedę mentów. Może je warto poświęcić na mięso na kiełbasę za to że oszczędzają. 
+Może poświencimy blogenraczki modowe kwaituszki one nie reprezntują sobą niczego tylko biedę ich kreacje to sztuka biedy oszczędności. I tych do systemu też warto zjeść. 
