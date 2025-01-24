@@ -795,3 +795,4 @@ Sklepy i ci budntownicy co zakazali grać to arystorkacja roljaliści to są te 
 Czekanie na majątek latami jak las urośnie. 
 Żydzi karzą na kasę czekać latami do emerytury. 
 To prymitywna kultura banków żydowskich. 
+Płaszcze długie do kostki i futra sztuczne długie do kostki damskie i koce damskie zwoltex arosa do szafy i na płaszcz jako docieplacz znikły przez środowiska LGBT na rzecz kórtek i ochorny przyrody i segergacji śmieci. Kobiety nie mają znów przez PRL co założyć na siebie na dwór czy w domu. 
